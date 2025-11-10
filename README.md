@@ -4,15 +4,15 @@
 
 ### Příchod na svět
 
-Československá porodní realita v roce 1986 byla plně v duchu tehdejšího režimu. Lékař byl ve zcela dominantním postavení vůči matce, která byla řemeny přikurtovaná ke třmenům porodního lůžka ve fixní poloze bez předchozí přípravy a bez možnosti jakkoliv ovlivnit průběh porodu. Invazivní zákroky byly rutinní, komunikace lékařů direktivní, psychická podpora nulová, přítomnost blízké osoby zakázaná. Dítě bylo odebráno matce okamžitě po porodu a další kontakt byl striktně omezený na kojení v pevně stanovených intervalech až do propuštění z porodnice.
+Porodní realita ČSSR v roce 1986 byla plně v duchu tehdejšího státního režimu. Lékař byl ve zcela dominantním postavení vůči matce, která byla řemeny přikurtovaná ke třmenům porodního lůžka ve fixní poloze po celou dobu porodu bez předchozí přípravy a bez možnosti jakkoliv ovlivnit průběh. Chování zdravotníků bylo direktivní, invazivní zákroky rutinní, psychická podpora nulová. Přítomnost blízké osoby u porodu byla zakázaná. Bezprostředně po přestřižení pupečníku bylo dítě separováno od matky. Veškerý další kontakt mezi matkou a dítětem byl striktně omezený na kojení v pevně stanovených intervalech až do propuštění z porodnice.
 
 ### Zlomená noha
 
-Na dětském oddělení okresní nemocnice v roce 1988 byla striktní separace dětí od rodičů standardem. Návštěvy nebyly možné, režim byl rigidní, zdravotní sestry přepracované, léčba čistě fyziologická. Psychosociální potřeby dětských pacientů nikdo neřešil. Dvouleté dítě s nohou v sádře strávilo týden v imobilizaci a sociální izolaci.
+Striktní separace dětí od rodičů byla na dětském oddělení okresní nemocnice v ČSSR v roce 1988 standardem. Návštěvy byly zakázané, provozní režim rigidní, zdravotní sestry přepracované, léčba čistě fyziologická. Psychosociální potřeby dětských pacientů systém neřešil. Dvouleté dítě se zlomenou nohou v sádře tak strávilo týden v imobilizaci a sociální izolaci.
 
 ### Jesle
 
-Mateřská dovolená v 80. letech trvala pouze 26-37 týdnů. Státní politika od matek po porodu vyžadovala co nejdřívější návrat do zaměstnání. V jeslích byly děti ve věku od 6 měsíců do 3 let. Prostředí bylo klinické, režim byl uniformní a přísně strukturovaný, individuální potřeby dětí byly ignorovány. To vedlo k jejich citové deprivaci a vysoké nemocnosti. Po necelém měsíci bylo moje umístění v jeslích na doporučení dětské lékařky ukončeno.
+Mateřská "dovolená" v ČSSR v 80. letech trvala pouze 26-37 týdnů. Státní politika od matek po porodu vyžadovala co nejdřívější návrat do zaměstnání. V jeslích byly děti ve věku od 6 měsíců do 3 let. Prostředí jeslí bylo klinické, provozní režim uniformní a přísně strukturovaný, individuální potřeby dětí byly ignorovány. To vedlo k jejich citové deprivaci a vysoké nemocnosti. Po necelém měsíci v roce 1988 bylo moje umístění v jeslích na doporučení dětské lékařky ukončeno.
 
 ### Rozvod
 
