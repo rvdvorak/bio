@@ -8,11 +8,11 @@ Porodní realita ČSSR v roce 1986 byla plně v duchu tehdejšího státního re
 
 ### Zlomená noha
 
-Striktní separace dětí od rodičů byla na dětském oddělení okresní nemocnice v ČSSR v roce 1988 standardem. Návštěvy byly zakázané, provozní režim rigidní, zdravotní sestry přepracované, léčba čistě fyziologická. Psychosociální potřeby dětských pacientů systém neřešil. Dvouleté dítě se zlomenou nohou v sádře tak strávilo týden v imobilizaci a sociální izolaci.
+Striktní separace dětí od rodičů byla na dětském oddělení okresní nemocnice v ČSSR v roce 1988 standardem. Návštěvy byly zakázané, provozní režim rigidní, zdravotní sestry přepracované, léčba čistě fyziologická. Psychosociální potřeby dětských pacientů systém neřešil. Dvouleté dítě se zlomenou nohou v sádře strávilo týden v imobilizaci a sociální izolaci.
 
 ### Jesle
 
-Státní politika ČSSR v 80. letech vyžadovala od matek po porodu co nejdřívější návrat do zaměstnání. Mateřská "dovolená" trvala pouze 26-37 týdnů. V jeslích byly děti ve věku od 6 měsíců do 3 let. Prostředí jeslí bylo klinické, provozní režim přísně strukturovaný a uniformní, individuální potřeby dětí byly ignorovány. To vedlo k jejich citové deprivaci a vysoké nemocnosti. Po necelém měsíci v roce 1988 bylo moje umístění v jeslích na doporučení dětské lékařky ukončeno.
+Státní politika ČSSR v 80. letech vyžadovala od matek po porodu co nejdřívější návrat do zaměstnání. Mateřská "dovolená" trvala pouze 26-37 týdnů. V jeslích byly děti ve věku od 6 měsíců do 3 let. Prostředí jeslí bylo klinické, provozní režim přísně strukturovaný a uniformní, individuální potřeby dětí byly ignorovány. To vedlo k citové deprivaci a vysoké nemocnosti. Po necelém měsíci v roce 1988 bylo moje umístění v jeslích na doporučení dětské lékařky ukončeno.
 
 ### Rozvod
 
