@@ -1,6 +1,6 @@
 # Od toxické psychózy k pozici technického ředitele
 
-## Dětství
+## Dětství v ČSSR
 
 ### Příchod na svět
 
@@ -17,3 +17,9 @@ Státní politika ČSSR v 80. letech vyžadovala od matek po porodu co nejdřív
 ### Rozvod
 
 Manželství mých rodičů ztroskotalo a v roce 1989, když mi byly 3 roky, skončilo rozvodem. Následující vývoj rodinných poměrů byl stejně živelný, jako společenský vývoj v tehdejším Československu. Matčina rodová linie převzala vládu, zatímco otcova ustoupila do pozadí. V mém životě nastal chaos.
+
+## Dětství v 90. letech
+
+### Babička
+
+Hlavou neúplné rodiny se stala moje babička (matčina matka). Díky její péči, podpoře a krizovým intervencím byly vždy zajištěny moje základní potřeby. Její dům mi poskytoval stabilní zázemí a bezpečí.
