@@ -12,7 +12,7 @@ Striktní separace dětí od rodičů byla na dětském oddělení okresní nemo
 
 ### Jesle
 
-Mateřská "dovolená" v ČSSR v 80. letech trvala pouze 26-37 týdnů. Státní politika od matek po porodu vyžadovala co nejdřívější návrat do zaměstnání. V jeslích byly děti ve věku od 6 měsíců do 3 let. Prostředí jeslí bylo klinické, provozní režim uniformní a přísně strukturovaný, individuální potřeby dětí byly ignorovány. To vedlo k jejich citové deprivaci a vysoké nemocnosti. Po necelém měsíci v roce 1988 bylo moje umístění v jeslích na doporučení dětské lékařky ukončeno.
+Státní politika ČSSR v 80. letech vyžadovala od matek po porodu co nejdřívější návrat do zaměstnání. Mateřská "dovolená" trvala pouze 26-37 týdnů. V jeslích byly děti ve věku od 6 měsíců do 3 let. Prostředí jeslí bylo klinické, provozní režim přísně strukturovaný a uniformní, individuální potřeby dětí byly ignorovány. To vedlo k jejich citové deprivaci a vysoké nemocnosti. Po necelém měsíci v roce 1988 bylo moje umístění v jeslích na doporučení dětské lékařky ukončeno.
 
 ### Rozvod
 
