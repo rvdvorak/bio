@@ -20,6 +20,17 @@ Manželství mých rodičů ztroskotalo a v roce 1989, když mi byly 3 roky, sko
 
 ## Dětství v 90. letech
 
-### Babička
+Nepřítomnost otce měla dominantní vliv na vývoj rodinných poměrů. Hlavou neúplné rodiny se po rozvodu stala moje babička (matčina matka). Díky její péči, podpoře a intervencím byly vždy zajištěny moje základní potřeby. Její dům byl stabilním útočištěm, zatímco se rodina během 90. let opakovaně stěhovala. Otce však nahradit nemohla.
 
-Hlavou neúplné rodiny se stala moje babička (matčina matka). Díky její péči, podpoře a krizovým intervencím byly vždy zajištěny moje základní potřeby. Její dům mi poskytoval stabilní zázemí a bezpečí.
+V roce 1990 matka navázala vztah s novým partnerem. Kvůli jeho problémům s alkoholem se opakovaně rozešli a po nějaké době vztah zase obnovili. V roce 1995 se rozešli definitivně.
+
+V roce 1997 matka začala budovat vztah s dalším mužem. Díky tomuto partnerství se rodina v roce 1999 přestěhovala ze Vsetína do Brna. Ani tento muž však nemohl nahradit otce.
+
+## Dospívání
+
+Traumata z ranného dětství, nepřítomnost otce a chaotické rodinné poměry otevřely dveře vlivu rodových traumat, o kterých se mlčí. To všechno dohromady v 15 letech vyústilo v existenciání krizi. Život přestal dávat smysl. S nástupem na střední školu přišla na scénu marihuana a extáze. Krize postupně eskalovala a v 17 letech vyvrcholila toxickou psychózou, která si vyžádala 7 týdenní hospitalizaci na uzavřeném oddělení psychiatrické kliniky.
+
+### Toxická psychóza
+
+Nástup toxické psychózy byl plíživý. Denní realita se postupně začala prolínat se snovým světem. Bylo jasné, že něco není v pořádku ale nikdo to nedokázal zastavit. V určitou chvíli blud zcela převládl nad realitou a situace se stala neúnosnou. Po převozu na psychiatrii jsem neměl ponětí o místě ani o čase. Nebyl jsem schopen odpovědět na otázku, kdo jsem. Nevěděl jsem, jestli jsem živý nebo mrtvý.
+
