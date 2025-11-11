@@ -20,7 +20,7 @@ Manželství mých rodičů ztroskotalo a v roce 1989, když mi byly 3 roky, sko
 
 ## Dětství v 90. letech
 
-Nepřítomnost otce měla dominantní vliv na vývoj rodinných poměrů. Hlavou neúplné rodiny se po rozvodu stala moje babička (matčina matka). Díky její péči, podpoře a intervencím byly vždy zajištěny moje základní potřeby. Její dům byl stabilním útočištěm, zatímco se rodina během 90. let opakovaně stěhovala. Otce však nahradit nemohla.
+Nepřítomnost otce měla dominantní vliv na vývoj rodinných poměrů. Hlavou neúplné rodiny se po rozvodu stala moje babička z matčiny strany. Díky její péči, podpoře a intervencím byly vždy zajištěny moje základní potřeby. Její dům byl stabilním útočištěm, zatímco se rodina během 90. let opakovaně stěhovala. Otce však nahradit nemohla.
 
 V roce 1990 matka navázala vztah s novým partnerem. Kvůli jeho problémům s alkoholem se opakovaně rozešli a po nějaké době vztah zase obnovili. V roce 1995 se rozešli definitivně.
 
