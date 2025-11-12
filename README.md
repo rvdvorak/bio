@@ -31,7 +31,7 @@ Matka po rozvodu navázala vztah s novým partnerem. Kvůli jeho problémům s a
 
 ## Dospívání
 
-Traumata z ranného dětství, nepřítomnost otce a chaotické rodinné poměry otevřely dveře vlivu rodových traumat, o kterých se mlčí. To všechno dohromady v 15 letech vyústilo v existenciání krizi. Život přestal dávat smysl. S nástupem na střední školu přišla na scénu marihuana a extáze. Krize postupně eskalovala a v 17 letech vyvrcholila toxickou psychózou.
+Traumata z raného dětství, nepřítomnost otce a chaotické rodinné poměry otevřely dveře vlivu rodových traumat, o kterých se mlčí. To všechno dohromady v 15 letech vyústilo v existenciální krizi. Život přestal dávat smysl. S nástupem na střední školu přišla na scénu marihuana a extáze. Krize postupně eskalovala a v 17 letech vyvrcholila toxickou psychózou.
 
 ### Toxická psychóza
 
@@ -69,6 +69,6 @@ Můj praděda z matčiny strany bojoval v 1. světové válce v Československý
 
 ### Nevědomá dynamika
 
-Traumata z ranného dětství, rozvod rodičů a následný chaos rodinných poměrů byly spouštěčem pro nevědomou identifikaci s utajeným osudem pradědy a popravených odbojářů. Rodová křivda nekončí smrtí ale předává se z generace na generaci mlčením tak dlouho, dokud nedojde k uznání. Řád nelze obelhat.
+Traumata z raného dětství, rozvod rodičů a následný chaos rodinných poměrů byly spouštěčem pro nevědomou identifikaci s utajeným osudem pradědy a popravených odbojářů. Rodová křivda nekončí smrtí ale předává se z generace na generaci mlčením tak dlouho, dokud nedojde k uznání. Řád nelze obelhat.
 
 ✱✱✱
