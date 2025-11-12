@@ -20,11 +20,9 @@ Manželství mých rodičů ztroskotalo a v roce 1989, když mi byly 3 roky, sko
 
 ## Dětství v 90. letech
 
-Nepřítomnost otce měla dominantní vliv na vývoj rodinných poměrů. Hlavou neúplné rodiny se po rozvodu stala moje babička z matčiny strany. Díky její péči, podpoře a intervencím byly vždy zajištěny moje základní potřeby. Její dům byl stabilním útočištěm, zatímco se rodina během 90. let opakovaně stěhovala. Otce však nahradit nemohla.
+Nepřítomnost otce měla dominantní vliv na vývoj rodinných poměrů. Hlavou neúplné rodiny se po rozvodu stala moje babička z matčiny strany. Díky její péči, podpoře a intervencím byly vždy zajištěny moje základní potřeby. Její dům byl stabilním útočištěm, zatímco se moje rodina během 90. let opakovaně stěhovala. Babička však nemůže nahradit otce.
 
-V roce 1990 matka navázala vztah s novým partnerem. Kvůli jeho problémům s alkoholem se opakovaně rozešli a po nějaké době vztah zase obnovili. V roce 1995 se rozešli definitivně.
-
-V roce 1997 matka začala budovat vztah s dalším mužem. Díky tomuto partnerství se rodina v roce 1999 přestěhovala ze Vsetína do Brna. Ani tento muž však nemohl nahradit otce.
+V roce 1990 matka navázala vztah s novým partnerem. Kvůli jeho problémům s alkoholem se opakovaně rozešli a po nějaké době vztah zase obnovili. V roce 1995 se rozešli definitivně. V roce 1997 začala budovat vztah s dalším mužem. Díky tomuto partnerství se moje rodina v roce 1999 přestěhovala ze Vsetína do Brna. Ani tento muž však nemohl nahradit otce.
 
 ## Dospívání
 
@@ -36,7 +34,7 @@ Nástup toxické psychózy byl plíživý. Denní realita se vlivem dlouhodobéh
 
 ### Plnoletost
 
-Dva měsíce po propuštění z psychiatrie jsem dosáhl plnoletosti. Přestoupil jsem na jinou střední školu a začal chodit na brigády. Vydělávání peněz se ukázalo jako nejlepší terapie. Potíž ale byla v tom, že většinu jsem jich utratil v hospodě.
+Dva měsíce po propuštění z psychiatrie jsem dosáhl plnoletosti. Přestoupil jsem na jinou střední školu a začal chodit na brigády. Vydělávání peněz se ukázalo jako nejlepší terapie. Potíž ale byla v tom, že většinu z nich jsem utratil v hospodě.
 
 ### Maturita
 
@@ -45,4 +43,29 @@ Na jaře 2007 před maturitou jsem s pitím skončil. Se slušným výsledkem js
 ## Hledání smyslu
 
 Práce v továrně mi po dvou letech přestala dávat smysl. V souvislosti s globální ekonomickou recesí se mi v roce 2009 naskytla příležitost odejít se 7 měsíčním odstupným. Bez váhání jsem toho využil. V letech 2009-2017 jsem vystřídal přibližně třicet různých prací. Mezitím jsem se pokusil o sebevraždu, prošel vyhořením a nakonec vyhlásil osobní bankrot.
+
+## Insolvence
+
+V roce 2017 jsem vstoupil do insolvence jako zaměstnanec bezpečnostní agentury. Mimo rámec pracovního poměru jsem procházel komplikovanou cestou rekvalifikace do IT. V roce 2021 jsem splatil 100% pohledávek. V roce 2022 jsem našel uplatnění jako programátor webových aplikací.
+
+## Vzestup
+
+Prostředí technologického startupu mi v letech 2022-2025 umožnilo rychlý profesní vzestup. Po necelém roce v roli programátora jsem přešel do role technického manažera. Na základě svého mezioborového přesahu mechatronika/HW/SW jsem od roku 2023 vedl komplexní redesign IoT produktu, který byl na přelomu roku 2024/2025 završen atestací a certifikací CE v akreditované zkušební laboratoři. Souběžně s redesignem jsem reorganizoval výrobu od fyzické migrace provozovny až po nasazení open-source ERP systému.
+
+## Vyhoření
+
+Na podzim 2025 jsem navzdory profesnímu úspěchu prošel vyhořením. Díky tomu jsem odhalil hluboké kořeny své existenciální krize, kterou jsem cyklicky procházel v letech 2001-2017.
+
+### Rodové trauma
+
+Můj praděda z matčiny strany bojoval za 1. světové války v Československých legiích. Přežil brutální podmínky zajateckého tábora. Při návratu do vlasti utrpěl těžké omrzliny. Během velké hospodářské krize s manželkou živil 7 dětí. Za 2. světové války spolupracoval s protinacistickým odbojem. Byl odhalen Gestapem a mučením donucen k prozrazení odbojářů, kteří byli následně popraveni včetně jejich rodin.
+
+### Nevědomá dynamika
+
+Traumata z ranného dětství, rozvod rodičů a následný chaos rodinných poměrů byly spouštěčem pro nevědomou identifikaci s utajeným osudem pradědy a popravených odbojářů. Rodová křivda nekončí smrtí ale předává se z generace na generaci mlčením tak dlouho, dokud nedojde k uznání. Řád nelze obelhat.
+
+
+
+
+
 
