@@ -52,9 +52,9 @@ V roce 2017 jsem vstoupil do insolvence jako zaměstnanec bezpečnostní agentur
 
 Prostředí technologického startupu mi v letech 2022-2025 umožnilo rychlý profesní vzestup. Po necelém roce v roli programátora jsem přešel do role technického manažera. Na základě svého mezioborového přesahu mechatronika/HW/SW jsem od roku 2023 vedl komplexní redesign IoT produktu, který byl na přelomu roku 2024/2025 završen atestací a certifikací CE v akreditované zkušební laboratoři. Souběžně s redesignem jsem reorganizoval výrobu od fyzické migrace provozovny až po nasazení open-source ERP systému.
 
-## Vyhoření
+## Pochopení
 
-Na podzim 2025 jsem navzdory profesnímu úspěchu prošel vyhořením. Díky tomu jsem odhalil hluboké kořeny své existenciální krize, kterou jsem cyklicky procházel v letech 2001-2017.
+Vyhoření na podzim 2025 mě přivedlo ke skrytým kořenům existenciální krize, kterou jsem cyklicky procházel v letech 2001-2017.
 
 ### Rodové trauma
 
