@@ -1,10 +1,9 @@
 # Od toxické psychózy k pozici technického ředitele
 
-Autor: Roman Viktor Dvořák
+[![License: CC BY-ND 4.0](https://img.shields.io/badge/License-CC%20BY--ND%204.0-lightgrey.svg)](https://creativecommons.org/licenses/by-nd/4.0/)
 
-Publikováno: 12. listopadu 2025
-
-Licence: Creative Commons BY-ND 4.0 International
+**Autor:** Roman Viktor Dvořák  
+**Licence:** [Creative Commons Attribution-NoDerivatives 4.0 International](https://creativecommons.org/licenses/by-nd/4.0/)
 
 ## Dětství v ČSSR
 
