@@ -4,6 +4,7 @@
 
 **Autor:** Roman Viktor Dvořák  
 **Publikováno:** 12. listopadu 2025  
+**Zdroj:** https://github.com/rvdvorak/bio  
 **Licence:** [Creative Commons Attribution-NoDerivatives 4.0 International](https://creativecommons.org/licenses/by-nd/4.0/)
 
 ## Dětství v ČSSR
