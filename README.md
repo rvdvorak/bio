@@ -22,7 +22,7 @@ Manželství mých rodičů ztroskotalo a v roce 1989, když mi byly 3 roky, sko
 
 Nepřítomnost otce měla dominantní vliv na vývoj rodinných poměrů. Hlavou neúplné rodiny se po rozvodu stala moje babička z matčiny strany. Díky její péči, podpoře a intervencím byly vždy zajištěny moje základní potřeby. Její dům byl stabilním útočištěm, zatímco se moje rodina během 90. let opakovaně stěhovala. Babička však nemůže nahradit otce.
 
-V roce 1990 matka navázala vztah s novým partnerem. Kvůli jeho problémům s alkoholem se opakovaně rozešli a po nějaké době vztah zase obnovili. V roce 1995 se rozešli definitivně. V roce 1997 začala budovat vztah s dalším mužem. Díky tomuto partnerství se moje rodina v roce 1999 přestěhovala ze Vsetína do Brna. Ani tento muž však nemohl nahradit otce.
+Matka po rozvodu navázala vztah s novým partnerem. Kvůli jeho problémům s alkoholem se opakovaně rozešli a po nějaké době vztah zase obnovili. V polovině 90. let se rozešli definitivně. Matka později začala budovat další partnerství, díky kterému se moje rodina v roce 1999 přestěhovala ze Vsetína do Brna. Ani tento muž však nemohl nahradit otce.
 
 ## Dospívání
 
@@ -34,7 +34,7 @@ Nástup toxické psychózy byl plíživý. Denní realita se vlivem dlouhodobéh
 
 ### Plnoletost
 
-Dva měsíce po propuštění z psychiatrie jsem dosáhl plnoletosti. Přestoupil jsem na jinou střední školu a začal chodit na brigády. Vydělávání peněz se ukázalo jako nejlepší terapie. Potíž ale byla v tom, že většinu z nich jsem utratil v hospodě.
+Krátce po propuštění z psychiatrie jsem dosáhl plnoletosti. Přestoupil jsem na jinou střední školu a začal chodit na brigády. Vydělávání peněz se ukázalo jako nejlepší terapie. Potíž ale byla v tom, že většinu z nich jsem utratil v hospodě.
 
 ### Maturita
 
@@ -60,11 +60,13 @@ Vyhoření na podzim 2025 mě přivedlo ke skrytým kořenům existenciální kr
 
 ### Rodové trauma
 
-Můj praděda z matčiny strany bojoval za 1. světové války v Československých legiích. Přežil brutální podmínky zajateckého tábora. Při návratu do vlasti utrpěl těžké omrzliny. Během velké hospodářské krize s manželkou živil 7 dětí. Za 2. světové války spolupracoval s protinacistickým odbojem. Byl odhalen Gestapem a mučením donucen k prozrazení odbojářů, kteří byli následně popraveni včetně jejich rodin. Poznamenán hrůzami válek, mučením a pocitem viny z prozrazení odbojářů po zbytek života mlčel.
+Můj praděda z matčiny strany bojoval v 1. světové válce v Československých legiích. Přežil brutální podmínky zajateckého tábora. Během návratu do vlasti utrpěl těžké omrzliny. Během velké hospodářské krize s manželkou živil 7 dětí. Ve 2. světové válce spolupracoval s protinacistickým odbojem. Byl odhalen Gestapem a mučením donucen k prozrazení odbojářů, kteří byli následně popraveni včetně jejich rodin. Poznamenán hrůzami válek, mučením a pocitem viny z prozrazení odbojářů po zbytek života mlčel.
 
 ### Nevědomá dynamika
 
 Traumata z ranného dětství, rozvod rodičů a následný chaos rodinných poměrů byly spouštěčem pro nevědomou identifikaci s utajeným osudem pradědy a popravených odbojářů. Rodová křivda nekončí smrtí ale předává se z generace na generaci mlčením tak dlouho, dokud nedojde k uznání. Řád nelze obelhat.
+
+✱✱✱
 
 
 
