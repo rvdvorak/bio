@@ -28,9 +28,21 @@ V roce 1997 matka začala budovat vztah s dalším mužem. Díky tomuto partners
 
 ## Dospívání
 
-Traumata z ranného dětství, nepřítomnost otce a chaotické rodinné poměry otevřely dveře vlivu rodových traumat, o kterých se mlčí. To všechno dohromady v 15 letech vyústilo v existenciání krizi. Život přestal dávat smysl. S nástupem na střední školu přišla na scénu marihuana a extáze. Krize postupně eskalovala a v 17 letech vyvrcholila toxickou psychózou, která si vyžádala 7 týdenní hospitalizaci na uzavřeném oddělení psychiatrické kliniky.
+Traumata z ranného dětství, nepřítomnost otce a chaotické rodinné poměry otevřely dveře vlivu rodových traumat, o kterých se mlčí. To všechno dohromady v 15 letech vyústilo v existenciání krizi. Život přestal dávat smysl. S nástupem na střední školu přišla na scénu marihuana a extáze. Krize postupně eskalovala a v 17 letech vyvrcholila toxickou psychózou.
 
 ### Toxická psychóza
 
-Nástup toxické psychózy byl plíživý. Denní realita se postupně začala prolínat se snovým světem. Bylo jasné, že něco není v pořádku ale nikdo to nedokázal zastavit. V určitou chvíli blud zcela převládl nad realitou a situace se stala neúnosnou. Po převozu na psychiatrii jsem neměl ponětí o místě ani o čase. Nebyl jsem schopen odpovědět na otázku, kdo jsem. Nevěděl jsem, jestli jsem živý nebo mrtvý.
+Nástup toxické psychózy byl plíživý. Denní realita se vlivem dlouhodobého nadužívání marihuany občas v kombinaci s extází postupně začala prolínat se snovým světem. Bylo jasné, že něco není v pořádku ale nikdo to nedokázal zastavit. V určitou chvíli blud zcela převládl nad realitou a situace se stala neúnosnou. Následoval převoz na psychiatrii. Na příjmu jsem neměl ponětí o místě ani o čase. Nebyl jsem schopen odpovědět na otázku, kdo jsem. Nevěděl jsem, jestli jsem živý nebo mrtvý. Abstinence mě však brzy vrátila do reality a po 7 týdnech jsem byl propuštěn. Toxická psychóza byla jedovatým plodem mé existenciální krize. Kořeny však zůstaly skryty.
+
+### Plnoletost
+
+Dva měsíce po propuštění z psychiatrie jsem dosáhl plnoletosti. Přestoupil jsem na jinou střední školu a začal chodit na brigády. Vydělávání peněz se ukázalo jako nejlepší terapie. Potíž ale byla v tom, že většinu jsem jich utratil v hospodě.
+
+### Maturita
+
+Na jaře 2007 před maturitou jsem s pitím skončil. Se slušným výsledkem jsem odmaturoval, oslavil 21. narozeniny a nastoupil do zaměstnání jako elektrikář.
+
+## Hledání smyslu
+
+Práce v továrně mi po dvou letech přestala dávat smysl. V souvislosti s globální ekonomickou recesí se mi v roce 2009 naskytla příležitost odejít se 7 měsíčním odstupným. Bez váhání jsem toho využil. V letech 2009-2017 jsem vystřídal přibližně třicet různých prací. Mezitím jsem se pokusil o sebevraždu, prošel vyhořením a nakonec vyhlásil osobní bankrot.
 
