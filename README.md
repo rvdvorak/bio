@@ -60,7 +60,7 @@ Vyhoření na podzim 2025 mě přivedlo ke skrytým kořenům existenciální kr
 
 ### Rodové trauma
 
-Můj praděda z matčiny strany bojoval za 1. světové války v Československých legiích. Přežil brutální podmínky zajateckého tábora. Při návratu do vlasti utrpěl těžké omrzliny. Během velké hospodářské krize s manželkou živil 7 dětí. Za 2. světové války spolupracoval s protinacistickým odbojem. Byl odhalen Gestapem a mučením donucen k prozrazení odbojářů, kteří byli následně popraveni včetně jejich rodin. Poznamenán hrůzami války, mučením a pocitem viny z prozrazení odbojářů po zbytek života mlčel.
+Můj praděda z matčiny strany bojoval za 1. světové války v Československých legiích. Přežil brutální podmínky zajateckého tábora. Při návratu do vlasti utrpěl těžké omrzliny. Během velké hospodářské krize s manželkou živil 7 dětí. Za 2. světové války spolupracoval s protinacistickým odbojem. Byl odhalen Gestapem a mučením donucen k prozrazení odbojářů, kteří byli následně popraveni včetně jejich rodin. Poznamenán hrůzami válek, mučením a pocitem viny z prozrazení odbojářů po zbytek života mlčel.
 
 ### Nevědomá dynamika
 
