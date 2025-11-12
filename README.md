@@ -1,5 +1,11 @@
 # Od toxické psychózy k pozici technického ředitele
 
+Autor: Roman Viktor Dvořák
+
+Publikováno: 12. listopadu 2025
+
+Licence: Creative Commons BY-ND 4.0 International
+
 ## Dětství v ČSSR
 
 ### Příchod na svět
