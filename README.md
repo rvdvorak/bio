@@ -67,9 +67,3 @@ Můj praděda z matčiny strany bojoval v 1. světové válce v Československý
 Traumata z ranného dětství, rozvod rodičů a následný chaos rodinných poměrů byly spouštěčem pro nevědomou identifikaci s utajeným osudem pradědy a popravených odbojářů. Rodová křivda nekončí smrtí ale předává se z generace na generaci mlčením tak dlouho, dokud nedojde k uznání. Řád nelze obelhat.
 
 ✱✱✱
-
-
-
-
-
-
