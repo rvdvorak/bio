@@ -37,7 +37,7 @@ Traumata z raného dětství, nepřítomnost otce a chaotické rodinné poměry 
 
 ### Toxická psychóza
 
-Nástup toxické psychózy byl plíživý. Denní realita se začala vlivem dlouhodobého nadužívání marihuany občas v kombinaci s extází postupně prolínat se snovým světem. Bylo jasné, že něco není v pořádku ale nikdo to nedokázal zastavit. V určitou chvíli blud zcela převládl nad realitou a situace se stala neúnosnou. Následoval převoz na psychiatrii. Na příjmu jsem neměl ponětí o místě ani o čase. Nebyl jsem schopen odpovědět na otázku, kdo jsem. Nevěděl jsem, jestli jsem živý nebo mrtvý. Abstinence mě brzy vrátila do reality a po 7 týdnech jsem byl propuštěn. Toxická psychóza byla jedovatým plodem mé existenciální krize. Kořeny však zůstaly skryty.
+Nástup toxické psychózy byl plíživý. Denní realita se začala vlivem dlouhodobého nadužívání marihuany občas v kombinaci s extází postupně prolínat se snovým světem. Bylo jasné, že něco není v pořádku ale nikdo to nedokázal zastavit. V určitou chvíli blud zcela převládl nad realitou a situace se stala neúnosnou. Následoval převoz na psychiatrii. Na příjmu jsem neměl ponětí o místě ani o čase. Nebyl jsem schopen odpovědět na otázku, kdo jsem. Nevěděl jsem, jestli jsem živý nebo mrtvý. Abstinence mě vrátila do reality a po 7 týdnech jsem byl propuštěn. Toxická psychóza byla jedovatým plodem mé existenciální krize. Kořeny však zůstaly skryty.
 
 ### Plnoletost
 
