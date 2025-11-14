@@ -23,7 +23,7 @@ Státní politika ČSSR v 80. letech vyžadovala od matek po porodu co nejdřív
 
 ### Rozvod
 
-Manželství mých rodičů ztroskotalo a na podzim 1989, když mi byly 3 roky, skončilo rozvodem. Následující vývoj rodinných poměrů byl stejně živelný, jako společenský vývoj v tehdejším Československu. Matčina rodová linie převzala vládu, zatímco otcova ustoupila do pozadí. V mém životě nastal chaos.
+Manželství mých rodičů ztroskotalo a na podzim 1989, když mi byly 3 roky, skončilo rozvodem. Následující vývoj rodinných poměrů byl stejně živelný, jako společenský vývoj v tehdejším Československu. Matčin rod převzal vládu, zatímco otcův ustoupil do pozadí. V mém životě nastal chaos.
 
 ## Dětství v 90. letech
 
