@@ -63,12 +63,20 @@ Prostředí technologického startupu mi v letech 2022-2025 umožnilo rychlý pr
 
 Vyhoření na podzim 2025 mě přivedlo ke skrytým kořenům existenciální krize, která mě cyklicky provázela po celý život.
 
-### Rodové trauma
+#### Rodová živnost
+
+Role zaměstnance mě nikdy nenaplňovala zatímco živnost jsem vnímal jako něco přirozeného přesto, že mí rodiče nikdy nepodnikali. Otcův rod po tři generace v řadě za sebou provozoval truhlářskou živnost. Nástup komunistické strany k moci v roce 1948 tuto tradici přerušil. Poslední z pokračovatelů se po ukončení živnosti stal ředitelem státního výrobního podniku. Práce pod vedením komunistické strany ho však frustrovala natolik, že po krátké době na funkci rezignoval.
+
+#### Zlomený hrdina
 
 Můj praděda bojoval v 1. světové válce v Československých legiích. Přežil peklo zajateckého tábora. Během návratu do vlasti těžce omrznul. Během velké hospodářské krize s manželkou živil 7 dětí. Ve 2. světové válce byl zapojen do protinacistického odboje. Byl odhalen Gestapem a mučením donucen k prozrazení odbojářů, kteří byli následně popraveni včetně jejich rodin. Poznamenán hrůzami válek, zajetím, mučením a zlomen pocitem viny z prozrazení odbojářů po zbytek života mlčel.
 
-### Nevědomá dynamika
+#### Nevědomá dynamika
 
-Traumata z raného dětství, rozvod rodičů a následný chaos rodinných poměrů byly spouštěčem pro nevědomou identifikaci s utajeným osudem pradědy a popravených odbojářů. Rodová křivda nekončí smrtí ale předává se z generace na generaci mlčením tak dlouho, dokud není uznána. Řád nelze obelhat.
+Traumata z raného dětství, rozvod rodičů a následný chaos rodinných poměrů byly spouštěčem pro nevědomou identifikaci s utajeným osudem předků. Rodová traumata a křivdy nekončí smrtí ale předávají se z generace na generaci mlčením tak dlouho, dokud nejsou uznány. Řád nelze obelhat.
+
+## Nový příběh
+
+(Ná)rod, který nezná svou minulost, je nucen ji opakovat. Utajená nebo zapomenutá traumata a křivdy našich předků se jako film promítají do našich současných životů. Když je uznáme a pochopíme, stanou se z nich zdroje síly a inspirace pro důstojnější a svobodnější život.
 
 ✱✱✱
