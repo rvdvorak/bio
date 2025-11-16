@@ -65,7 +65,7 @@ Vyhoření na podzim 2025 mě přivedlo ke skrytým kořenům existenciální kr
 
 #### Rodová živnost
 
-Role zaměstnance mě nikdy nenaplňovala zatímco živnost jsem od začátku vnímal jako něco přirozeného přesto, že mí rodiče nikdy nepodnikali. Otcův rod po tři generace v řadě za sebou provozoval truhlářskou živnost. Nástup komunistické strany k moci v roce 1948 tuto tradici přerušil. Poslední z pokračovatelů se po ukončení živnosti stal ředitelem státního výrobního podniku. Práce pod vedením komunistické strany ho však frustrovala natolik, že po krátké době na funkci rezignoval.
+Role zaměstnance mě nikdy nenaplňovala zatímco živnost jsem od začátku vnímal jako něco přirozeného přesto, že mí rodiče nikdy nepodnikali. Otcův rod po tři generace v řadě za sebou provozoval truhlářskou živnost. Nástup komunistické strany k moci v Československu v roce 1948 tuto tradici přerušil. Poslední z pokračovatelů se po ukončení živnosti stal ředitelem státního výrobního podniku. Práce pod vedením komunistické strany ho však frustrovala natolik, že po krátké době na funkci rezignoval.
 
 #### Zlomený hrdina
 
