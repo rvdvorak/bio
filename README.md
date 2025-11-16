@@ -31,7 +31,7 @@ Nepřítomnost otce měla dominantní vliv na vývoj rodinných poměrů. Hlavou
 
 ## Dospívání
 
-Traumata z raného dětství, nepřítomnost otce a chaotické rodinné poměry otevřely dveře vlivu rodových traumat, o kterých se mlčí. To všechno dohromady v 15 letech vyústilo v existenciální krizi. Život přestal dávat smysl. S nástupem na střední školu přišla na scénu marihuana a extáze. Krize postupně eskalovala a v 17 letech vyvrcholila toxickou psychózou.
+Traumata z raného dětství, nepřítomnost otce a chaotické rodinné poměry otevřely dveře vlivu rodových traumat, o kterých se mlčí. To všechno dohromady v 15 letech vyústilo v existenciální krizi. Život přestal dávat smysl. S nástupem na střední školu v roce 2002 přišla na scénu marihuana a extáze. Krize postupně eskalovala a v 17 letech v roce 2004 vyvrcholila toxickou psychózou.
 
 ### Toxická psychóza
 
@@ -39,7 +39,7 @@ Nástup toxické psychózy byl plíživý. Denní realita se začala vlivem dlou
 
 ### Plnoletost
 
-Krátce po propuštění z psychiatrie jsem dosáhl plnoletosti. Přestoupil jsem na jinou střední školu a začal chodit na brigády. Vydělávání peněz se ukázalo jako nejlepší terapie. Potíž ale byla v tom, že většinu z nich jsem utratil v hospodě.
+Krátce po propuštění z psychiatrie jsem v roce 2004 dosáhl plnoletosti. Přestoupil jsem na jinou střední školu a začal chodit na brigády. Vydělávání peněz se ukázalo jako nejlepší terapie. Potíž ale byla v tom, že většinu z nich jsem utratil v hospodě.
 
 ### Maturita
 
