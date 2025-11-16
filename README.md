@@ -47,7 +47,7 @@ Na jaře 2007 před maturitou jsem skončil s pitím. Se slušným výsledkem js
 
 ## Hledání smyslu
 
-Práce v továrně mi po dvou letech přestala dávat smysl. V souvislosti s globální ekonomickou recesí se mi v roce 2009 naskytla příležitost odejít se 7 měsíčním odstupným. Bez váhání jsem toho využil. V letech 2009-2017 jsem vystřídal přibližně třicet různých prací. Mezitím jsem se pokusil o sebevraždu, prošel vyhořením a nakonec vyhlásil osobní bankrot.
+Práce v továrně mi po dvou letech přestala dávat smysl. V souvislosti s tehdejší globální ekonomickou recesí se mi v roce 2009 naskytla příležitost odejít se 7 měsíčním odstupným. Bez váhání jsem toho využil. V letech 2009-2017 jsem vystřídal přibližně třicet různých prací. Mezitím jsem se pokusil o sebevraždu, prošel vyhořením a nakonec vyhlásil osobní bankrot.
 
 ## Insolvence
 
@@ -65,7 +65,7 @@ Vyhoření na podzim 2025 mě přivedlo ke skrytým kořenům existenciální kr
 
 #### Rodová živnost
 
-Role zaměstnance mě nikdy nenaplňovala zatímco živnost jsem od začátku vnímal jako něco přirozeného přesto, že mí rodiče nikdy nepodnikali. Otcův rod po tři generace v řadě za sebou provozoval truhlářskou živnost. Nástup komunistické strany k moci v Československu v roce 1948 tuto tradici přerušil. Poslední z pokračovatelů se po ukončení živnosti stal ředitelem státního výrobního podniku. Práce pod vedením komunistické strany ho však frustrovala natolik, že po krátké době na funkci rezignoval.
+Role zaměstnance mě nikdy nenaplňovala zatímco živnost jsem od začátku vnímal jako něco přirozeného přesto, že mí rodiče nikdy nepodnikali. Otcův rod po tři generace v řadě za sebou provozoval truhlářskou živnost. Nástup komunistické strany k moci v Československu v roce 1948 tuto tradici přerušil. Poslední z pokračovatelů se po ukončení živnosti stal ředitelem státního výrobního podniku. Práce pod vedením komunistické strany ho však frustrovala natolik, že po krátké době ve funkci rezignoval.
 
 #### Zlomený hrdina
 
