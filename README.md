@@ -7,6 +7,10 @@
 **Zdroj:** https://github.com/rvdvorak/bio  
 **Licence:** [Creative Commons Attribution-NoDerivatives 4.0 International](https://creativecommons.org/licenses/by-nd/4.0/)
 
+## Proč?
+
+Tento příběh je velmi osobní. Traumata a křivdy, o kterých píšu, se však dotýkají celé naší společnosti. Našim životům vládnou nevědomé kolektivní procesy. Poznání osvobozuje.
+
 ## Dětství v ČSSR
 
 ### Příchod na svět
