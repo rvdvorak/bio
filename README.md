@@ -2,7 +2,7 @@
 
 [![License: CC BY-ND 4.0](https://img.shields.io/badge/License-CC%20BY--ND%204.0-lightgrey.svg)](https://creativecommons.org/licenses/by-nd/4.0/)
 
-**Autor:** [Roman Viktor Dvořák](https://www.linkedin.com/in/rvdvorak/)  
+**Autor:** [Roman Viktor Dvořák](https://www.linkedin.com/in/romanviktor/)  
 **Publikováno:** 12. listopadu 2025  
 **Zdroj:** https://github.com/rvdvorak/bio  
 **Licence:** [Creative Commons Attribution-NoDerivatives 4.0 International](https://creativecommons.org/licenses/by-nd/4.0/)
