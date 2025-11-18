@@ -65,7 +65,7 @@ Prostředí technologického startupu mi v letech 2022-2025 umožnilo rychlý pr
 
 ### Vyhoření
 
-Vyhoření na podzim 2025 mě přivedlo ke skrytým kořenům existenciální krize, která mě cyklicky provázela po celý život. **Pochopení mě přivedlo zpět k vlastní síle.**
+Vyhoření mě na podzim 2025 přivedlo ke skrytým kořenům existenciální krize, která mě cyklicky provázela po celý život. **Pochopení mě přivedlo zpět k vlastní síle.**
 
 #### Rodová živnost
 
