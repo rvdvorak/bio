@@ -9,7 +9,7 @@
 
 ## Proč?
 
-Tento příběh je velmi osobní. Traumata a křivdy, o kterých píšu, se však dotýkají celé naší společnosti. Našim životům vládnou nevědomé kolektivní procesy. Poznání osvobozuje.
+Tento příběh je velmi osobní. Traumata a křivdy, o kterých píšu, jsou však celospolečenská. Našim životům vládnou nevědomé kolektivní procesy. **Poznání osvobozuje.**
 
 ## Dětství v ČSSR
 
