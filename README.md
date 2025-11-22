@@ -61,26 +61,28 @@ V roce 2017 jsem vstoupil do insolvence jako zaměstnanec bezpečnostní agentur
 
 Prostředí technologického startupu mi v letech 2022-2025 umožnilo rychlý profesní vzestup. Po necelém roce v roli programátora jsem přešel do role technického manažera. Na základě svého mezioborového přesahu mechatronika/HW/SW jsem od roku 2023 vedl komplexní redesign IoT produktu, který byl na přelomu roku 2024/2025 završen atestací a certifikací CE v akreditované zkušební laboratoři. Souběžně s redesignem jsem reorganizoval výrobu od fyzické migrace provozovny až po nasazení open-source ERP systému.
 
-## Pochopení
+## Kořeny
 
-### Vyhoření
+Vyhoření mě na podzim 2025 přivedlo ke skrytým kořenům existenciální krize, která mě cyklicky provázela po celý život. Jejich pochopení mě přivedlo zpět k vlastní síle.
 
-Vyhoření mě na podzim 2025 přivedlo ke skrytým kořenům existenciální krize, která mě cyklicky provázela po celý život. Pochopení mě přivedlo zpět k vlastní síle.
-
-#### Rodová živnost
+### Rodová živnost
 
 Role zaměstnance mě nikdy nenaplňovala zatímco živnost jsem od začátku vnímal jako něco přirozeného přesto, že mí rodiče nikdy nepodnikali. Otcův rod po tři generace v řadě za sebou provozoval truhlářskou živnost. Nástup komunistické strany k moci v Československu v roce 1948 tuto tradici přerušil. Poslední z pokračovatelů se po ukončení živnosti stal ředitelem státního výrobního podniku. Práce pod vedením komunistické strany ho však frustrovala natolik, že po krátké době ve funkci rezignoval.
 
-#### Zlomený hrdina
+### Prababička
+
+Moje prababička měla bratra a syna, kteří byli ve 2. světové válce zapojení do protinacistického odboje. Její bratr byl odhalen a i se svou manželkou a dospívající dcerou byli popraveni. Její syn dvakrát uprchl z transportu na nucené práce, do konce války se musel skrývat, přežil válku ale později po válce spáchal sebevraždu. Její dcera během války v raném dětství zemřela na záškrt.
+
+### Zlomený hrdina
 
 Můj praděda bojoval v 1. světové válce v Československých legiích. Přežil peklo zajateckého tábora. Během návratu do vlasti těžce omrznul. Během velké hospodářské krize s manželkou živil 7 dětí. Ve 2. světové válce byl zapojen do protinacistického odboje. Byl odhalen Gestapem a mučením donucen k prozrazení odbojářů, kteří byli následně popraveni včetně jejich rodin. Poznamenán hrůzami válek, zajetím, mučením a zlomen pocitem viny z prozrazení odbojářů po zbytek života mlčel.
 
-#### Nevědomá dynamika
+### Nevědomá dynamika
 
-Traumata z raného dětství, rozvod rodičů a následný chaos rodinných poměrů byly spouštěčem pro nevědomou identifikaci s utajeným osudem předků. Rodová traumata a křivdy nekončí smrtí ale předávají se z generace na generaci mlčením tak dlouho, dokud nejsou uznány. Řád nelze obelhat.
+Traumata z raného dětství, rozvod rodičů a následný chaos rodinných poměrů byly spouštěčem pro nevědomou identifikaci se zamlčenými osudy předků. Rodová traumata a křivdy nekončí smrtí ale předávají se z generace na generaci mlčením tak dlouho, dokud nejsou uznány. Řád nelze obelhat.
 
 ## Nový příběh
 
-(Ná)rod, který nezná svou minulost, je nucen ji opakovat. Utajená nebo zapomenutá traumata a křivdy našich předků se jako film promítají do našich současných životů. Když je uznáme a pochopíme, stanou se z nich zdroje síly a inspirace pro důstojnější a svobodnější život.
+Globální geopolitické konflikty nám zrcadlí naše vlastní nevědomé vzorce. Utajená nebo zapomenutá traumata a křivdy našich předků se jako film promítají do našich současných životů. Když je uznáme a pochopíme, stanou se z nich zdroje síly a inspirace pro důstojnější a svobodnější život.
 
 ✱✱✱
