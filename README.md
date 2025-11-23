@@ -63,7 +63,7 @@ Prostředí technologického startupu mi v letech 2022-2025 umožnilo rychlý pr
 
 ## Kořeny
 
-V průběhu let jsem postupně odhaloval kořeny svých krizí. Jejich pochopení mě přivedlo zpět k vlastní síle.
+V průběhu let jsem postupně odhaloval své kořeny.
 
 ### Rodová živnost
 
