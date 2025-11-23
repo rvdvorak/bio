@@ -77,12 +77,12 @@ Během velké hospodářské krize musela moje prababička před svými sedmi d�
 
 Můj praděda bojoval v 1. světové válce v Československých legiích. Přežil peklo zajateckého tábora. Během návratu do vlasti těžce omrznul. Během velké hospodářské krize s manželkou živil sedm dětí. Ve 2. světové válce byl zapojen do protinacistického odboje. Byl odhalen Gestapem a mučením donucen k prozrazení odbojářů, kteří byli následně popraveni včetně jejich rodin. Poznamenán hrůzami válek a zajetím, zmrzačen mučením a zlomen pocitem viny z prozrazení odbojářů po zbytek života mlčel.
 
-### Sebepoznání
+### Poznání
 
-Traumata z raného dětství, nepřítomnost otce a komplikované vztahy v rodině mě vedly k nevědomé identifikaci se zamlčenými osudy předků. Rodová traumata a křivdy nekončí smrtí ale předávají se z generace na generaci mlčením tak dlouho, dokud nedojde k uvědomění a uznání. Řád nelze obelhat.
+Osobní traumata z raného dětství, nepřítomnost otce a komplikované vztahy v rodině mě vedly k nevědomé identifikaci s rodovými traumaty. Těžké osudy předků nekončí jejich smrtí ale dědí se jako rodová traumata přesto, že se o nich mlčí. Dědí se tak dlouho, dokud nedojde k uvědomění a uznání. Řád nelze obelhat.
 
 ## Osvobození
 
-Globální geopolitické konflikty nám zrcadlí naše vlastní nevědomé vzorce. Utajená nebo zapomenutá traumata a křivdy našich předků se jako film promítají do našich současných životů. Když si je uvědomíme a uznáme, stanou se z nich zdroje síly a inspirace pro důstojnější a svobodnější život.
+Globální geopolitické konflikty nám zrcadlí naše vlastní nevědomé vzorce. Rodová traumata vstupují do našich současných životů jako psychologické projekce. Když si je uvědomíme a uznáme, stanou se z nich zdroje síly a inspirace pro důstojnější a svobodnější život.
 
 ✱✱✱
