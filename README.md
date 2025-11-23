@@ -79,7 +79,7 @@ Můj praděda bojoval v 1. světové válce v Československých legiích. Pře�
 
 ### Nevědomá dynamika
 
-Traumata z raného dětství, rozvod rodičů a následný chaos rodinných poměrů byly spouštěčem pro nevědomou identifikaci se zamlčenými osudy předků. Rodová traumata a křivdy nekončí smrtí ale předávají se z generace na generaci mlčením tak dlouho, dokud nejsou uznány. Řád nelze obelhat.
+Traumata z raného dětství, nepřítomnost otce a komplikované vztahy v rodině vedly k nevědomé identifikaci se zamlčenými osudy předků. Rodová traumata a křivdy nekončí smrtí ale předávají se z generace na generaci mlčením tak dlouho, dokud nejsou uznány. Řád nelze obelhat.
 
 ## Nový příběh
 
