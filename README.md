@@ -63,7 +63,7 @@ Prostředí technologického startupu mi v letech 2022-2025 umožnilo rychlý pr
 
 ## Kořeny
 
-Vyhoření mě na podzim 2025 přivedlo ke skrytým kořenům existenciální krize, která mě cyklicky provázela po celý život. Jejich pochopení mě přivedlo zpět k vlastní síle.
+V průběhu let jsem postupně odhaloval kořeny svých krizí. Jejich pochopení mě přivedlo zpět k vlastní síle.
 
 ### Rodová živnost
 
@@ -77,7 +77,7 @@ Během velké hospodářské krize musela moje prababička před svými sedmi d�
 
 Můj praděda bojoval v 1. světové válce v Československých legiích. Přežil peklo zajateckého tábora. Během návratu do vlasti těžce omrznul. Během velké hospodářské krize s manželkou živil sedm dětí. Ve 2. světové válce byl zapojen do protinacistického odboje. Byl odhalen Gestapem a mučením donucen k prozrazení odbojářů, kteří byli následně popraveni včetně jejich rodin. Poznamenán hrůzami válek a zajetím, zmrzačen mučením a zlomen pocitem viny z prozrazení odbojářů po zbytek života mlčel.
 
-### Nevědomá dynamika
+## Nevědomá dynamika
 
 Osobní traumata z raného dětství, nepřítomnost otce a komplikované vztahy v rodině mě vedly k nevědomé identifikaci s rodovými traumaty. Těžké osudy předků nekončí jejich smrtí ale dědí se tak dlouho, dokud nedojde k uvědomění a pochopení. Řád nelze obelhat.
 
