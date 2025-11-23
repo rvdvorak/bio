@@ -71,11 +71,11 @@ Role zaměstnance mě nikdy nenaplňovala zatímco živnost jsem od začátku vn
 
 ### Prababička
 
-Moje prababička měla bratra a syna, kteří byli ve 2. světové válce zapojení do protinacistického odboje. Její bratr byl odhalen a i se svou manželkou a dospívající dcerou byli popraveni. Její syn dvakrát uprchl z transportu na nucené práce, do konce války se musel skrývat, přežil válku ale později po válce spáchal sebevraždu. Její dcera během války v raném dětství zemřela na záškrt.
+Během velké hospodářské krize musela moje prababička před svými sedmi dětmi zamykat chleba do skříně. Její muž v dobách všeobecné nezaměstnanosti často podléhal alkoholu. Během 2. světové války zemřela její čtyřletá dcera na záškrt. Její bratr a syn byli zapojení do protinacistického odboje. Její bratr byl odhalen a i se svou manželkou a dospívající dcerou byli nacisty popraveni. Její syn dvakrát uprchl z transportu na nucené práce, do konce války se musel skrývat, přežil válku ale během normalizace se zastřelil.
 
 ### Zlomený hrdina
 
-Můj praděda bojoval v 1. světové válce v Československých legiích. Přežil peklo zajateckého tábora. Během návratu do vlasti těžce omrznul. Během velké hospodářské krize s manželkou živil 7 dětí. Ve 2. světové válce byl zapojen do protinacistického odboje. Byl odhalen Gestapem a mučením donucen k prozrazení odbojářů, kteří byli následně popraveni včetně jejich rodin. Poznamenán hrůzami válek, zajetím, mučením a zlomen pocitem viny z prozrazení odbojářů po zbytek života mlčel.
+Můj praděda bojoval v 1. světové válce v Československých legiích. Přežil peklo zajateckého tábora. Během návratu do vlasti těžce omrznul. Během velké hospodářské krize s manželkou živil sedm dětí. Ve 2. světové válce byl zapojen do protinacistického odboje. Byl odhalen Gestapem a mučením donucen k prozrazení odbojářů, kteří byli následně popraveni včetně jejich rodin. Poznamenán hrůzami válek a zajetím, zmrzačen mučením a zlomen pocitem viny z prozrazení odbojářů po zbytek života mlčel.
 
 ### Nevědomá dynamika
 
