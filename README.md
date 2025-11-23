@@ -83,6 +83,6 @@ Osobní traumata z raného dětství, nepřítomnost otce a komplikované vztahy
 
 ## Osvobození
 
-Globální geopolitické konflikty nám zrcadlí naše vlastní nevědomé vzorce. Rodová traumata vstupují do našich současných životů jako psychologické projekce. Když si je uvědomíme a uznáme, stanou se z nich zdroje síly a inspirace pro důstojnější a svobodnější život.
+Globální geopolitické konflikty nám zrcadlí naše vlastní nevědomé vzorce. Rodová traumata vstupují do našich současných životů jako psychologické projekce. Když si to uvědomíme a uznáme, otevře se cesta pro důstojnější a svobodnější život.
 
 ✱✱✱
