@@ -79,10 +79,10 @@ Můj praděda bojoval v 1. světové válce v Československých legiích. Pře�
 
 ## Nevědomá dynamika
 
-Osobní traumata z raného dětství, nepřítomnost otce a komplikované vztahy v rodině mě vedly k nevědomé identifikaci s rodovými traumaty. Těžké osudy předků nekončí jejich smrtí ale dědí se tak dlouho, dokud nedojde k uvědomění a pochopení. Řád nelze obelhat.
+Osobní traumata z raného dětství, nepřítomnost otce a komplikované vztahy v rodině mě vedly k nevědomé identifikaci s rodovými traumaty. Těžké osudy předků nekončí jejich smrtí ale dědí se z generace na generaci tak dlouho, dokud nedojde k uvědomění a pochopení. Řád nelze obelhat.
 
 ## Osvobození
 
-Globální geopolitické konflikty nám zrcadlí naše vlastní nevědomé vzorce. Rodová traumata vstupují do našich současných životů jako psychologické projekce. Když si to uvědomíme a uznáme, otevře se cesta pro důstojnější a svobodnější život.
+Svět nám zrcadlí naše vlastní nevědomé vzorce. Rodová traumata vstupují do našich současných životů jako psychologické projekce. To se děje v globálních geopolitických konfliktech, na úrovni států, ve firmách i v rodinách. Když si to uvědomíme a uznáme, otevře se cesta pro důstojnější a svobodnější život. Klíčem je sebereflexe.
 
 ✱✱✱
