@@ -83,6 +83,6 @@ Osobní traumata z raného dětství, nepřítomnost otce a komplikované rodinn
 
 ## Osvobození
 
-Svět nám zrcadlí naše vlastní nevědomé vzorce. Rodová traumata vstupují do našich současných životů jako psychologické projekce. To se děje v globálních geopolitických konfliktech, na úrovni států, ve firmách a zejména v rodinách. Když si to uvědomíme a uznáme, otevře se cesta pro důstojnější a svobodnější život. Klíčem je sebereflexe.
+Svět nám zrcadlí naše vlastní nevědomé vzorce. Rodová traumata vstupují do našich současných životů jako psychologické projekce. To se děje v rodinách, ve firmách, na úrovni států i v globálních geopolitických konfliktech. Když si to uvědomíme a uznáme, otevře se cesta pro důstojnější a svobodnější budoucnost. Klíčem je sebereflexe.
 
 ✱✱✱
