@@ -15,11 +15,11 @@ Tento příběh je velmi osobní. Traumata a křivdy, o kterých píšu, jsou v�
 
 ### Příchod na svět
 
-Porodní realita ČSSR v roce 1986 byla plně v duchu tehdejšího státního režimu. Lékař byl ve zcela dominantním postavení vůči matce, která byla řemeny přikurtovaná ke třmenům porodního lůžka ve fixní poloze po celou dobu porodu bez předchozí přípravy a bez možnosti jakkoliv ovlivnit průběh. Chování zdravotníků bylo direktivní, invazivní zákroky rutinní, psychická podpora nulová. Přítomnost blízké osoby u porodu byla zakázaná. Bezprostředně po přestřižení pupečníku bylo dítě separováno od matky. Veškerý další kontakt mezi matkou a dítětem byl striktně omezený na kojení v pevně stanovených intervalech až do propuštění z porodnice.
+Porodní realita ČSSR v roce 1986 byla plně v duchu tehdejšího státního režimu. Lékař byl ve zcela dominantním postavení vůči matce, která byla řemeny přikurtovaná ke třmenům porodního lůžka ve fixní poloze po celou dobu porodu bez předchozí přípravy a bez možnosti jakkoliv ovlivnit průběh. Chování zdravotníků bylo direktivní, invazivní zákroky rutinní, psychická podpora nulová. Přítomnost blízké osoby u porodu byla zakázaná. Bezprostředně po přestřižení pupečníku bylo dítě separováno od matky. Veškerý další kontakt mezi matkou a dítětem byl striktně omezený na kojení v pevně stanovených intervalech až do propuštění z porodnice. Tato praxe byla traumatizující pro matky i pro děti.
 
 ### Zlomená noha
 
-Striktní separace dětí od rodičů byla na dětském oddělení okresní nemocnice v ČSSR v roce 1988 standardem. Návštěvy byly zakázané, provozní režim rigidní, zdravotní sestry přepracované, léčba čistě fyziologická. Psychosociální potřeby dětských pacientů systém neřešil. Dvouleté dítě se zlomenou nohou v sádře strávilo týden v imobilizaci a sociální izolaci.
+Striktní separace dětí od rodičů byla na dětském oddělení okresní nemocnice v ČSSR v roce 1988 standardem. Návštěvy byly zakázané, provozní režim rigidní, zdravotní sestry přepracované, léčba čistě fyziologická. Psychosociální potřeby dětských pacientů systém neřešil. Dvouleté dítě se zlomenou nohou v sádře strávilo týden v imobilizaci a sociální izolaci. Důsledkem bylo další trauma.
 
 ### Jesle
 
@@ -27,7 +27,7 @@ Státní politika ČSSR v 80. letech vyžadovala od matek po porodu co nejdřív
 
 ### Rozvod
 
-Manželství mých rodičů ztroskotalo a na podzim 1989, když mi byly 3 roky, skončilo rozvodem. Následující vývoj rodinných poměrů byl stejně živelný, jako společenský vývoj v tehdejším Československu. Matčin rod převzal vládu, zatímco otcův ustoupil do pozadí. V mém životě nastal chaos.
+Manželství mých rodičů ztroskotalo a na podzim 1989, když mi byly 3 roky, skončilo rozvodem a pro mě dalším traumatem. Následující vývoj rodinných poměrů byl živelný, jako společenský vývoj v tehdejším Československu. Matčin rod převzal vládu, zatímco otcův ustoupil do pozadí. V mém světě nastal chaos.
 
 ## Dětství v 90. letech
 
@@ -35,7 +35,7 @@ Nepřítomnost otce měla dominantní vliv na vývoj rodinných poměrů. Hlavou
 
 ## Dospívání
 
-Traumata z raného dětství, nepřítomnost otce a komplikované rodinné poměry otevřely dveře vlivu rodových traumat, o kterých se mlčí. To všechno dohromady v 15 letech vyústilo v existenciální krizi. Život přestal dávat smysl. S nástupem na střední školu v roce 2002 přišla na scénu marihuana a extáze. Krize postupně eskalovala a v 17 letech v roce 2004 vyvrcholila toxickou psychózou.
+Traumata z raného dětství, nepřítomnost otce a komplikované rodinné poměry otevřely dveře vlivu rodových traumat, o kterých se mlčí. To všechno dohromady v 15 letech vyústilo v existenciální krizi. Život mi přestal dávat smysl. S nástupem na střední školu v roce 2002 přišla na scénu marihuana a extáze. Krize postupně eskalovala a v 17 letech v roce 2004 vyvrcholila toxickou psychózou.
 
 ### Toxická psychóza
 
@@ -43,7 +43,7 @@ Nástup toxické psychózy byl plíživý. Denní realita se začala vlivem dlou
 
 ### Plnoletost
 
-Krátce po propuštění z psychiatrie jsem v roce 2004 dosáhl plnoletosti. Přestoupil jsem na jinou střední školu a začal chodit na brigády. Vydělávání peněz se ukázalo jako nejlepší terapie. Potíž ale byla v tom, že většinu z nich jsem utratil v hospodě.
+Krátce po propuštění z psychiatrie jsem v roce 2004 dosáhl plnoletosti. Přestoupil jsem na jinou střední školu a začal chodit na brigády. Vydělávání peněz se ukázalo jako nejlepší rehabilitace. Potíž ale byla v tom, že většinu z nich jsem tehdy utratil v hospodě.
 
 ### Maturita
 
@@ -59,7 +59,7 @@ V roce 2017 jsem vstoupil do insolvence jako zaměstnanec bezpečnostní agentur
 
 ## Vzestup
 
-Prostředí technologického startupu mi v letech 2022-2025 umožnilo rychlý profesní vzestup. Po necelém roce v roli programátora jsem přešel do role technického manažera. Na základě svého mezioborového přesahu mechatronika/HW/SW jsem od roku 2023 vedl komplexní redesign IoT produktu, který byl na přelomu roku 2024/2025 završen atestací a certifikací CE v akreditované zkušební laboratoři. Souběžně s redesignem jsem reorganizoval výrobu od fyzické migrace provozovny až po nasazení open-source ERP systému.
+V prostředí technologického startupu jsem v letech 2022-2025 prošel rychlým profesním vývojem. Po necelém roce v roli programátora jsem přešel do role technického manažera. S nasazením všech zkušeností, organizačního talentu a mezioborového přesahu (HW/SW/elektro/mechanika) jsem od roku 2023 vedl komplexní redesign technologického (IoT) produktu, který byl na přelomu roku 2024/2025 završen atestací a certifikací (CE) v akreditované zkušební laboratoři. Souběžně s redesignem jsem vedl reorganizaci výroby od fyzické migrace provozovny přes změnu dodavatelů, zefektivnění procesů až po nasazení informačního (ERP) systému pro řízení výroby a logistiky.
 
 ## Kořeny
 
@@ -75,14 +75,14 @@ Během velké hospodářské krize musela moje prababička před svými sedmi d�
 
 ### Zlomený hrdina
 
-Můj praděda bojoval v 1. světové válce v Československých legiích. Přežil peklo zajateckého tábora. Během návratu do vlasti těžce omrznul. Během velké hospodářské krize s manželkou živil sedm dětí. Ve 2. světové válce byl zapojen do protinacistického odboje. Byl odhalen Gestapem a mučením donucen k prozrazení odbojářů, kteří byli následně popraveni včetně jejich rodin. Poznamenán hrůzami válek a zajetím, zmrzačen mučením a zlomen pocitem viny z prozrazení odbojářů po zbytek života mlčel.
+Můj praděda bojoval v 1. světové válce v Československých legiích. Přežil peklo zajateckého tábora. Během návratu do vlasti těžce omrznul. Během velké hospodářské krize s manželkou živil sedm dětí. Ve 2. světové válce byl zapojen do protinacistického odboje. Byl odhalen Gestapem a mučením donucen k prozrazení odbojářů, kteří byli následně popraveni včetně jejich rodin. Poznamenán hrůzami válek a zajetí, zmrzačen mučením a zlomen pocitem viny z prozrazení odbojářů po zbytek života mlčel.
 
 ## Nevědomá dynamika
 
-Osobní traumata z raného dětství, nepřítomnost otce a komplikované rodinné poměry mě vedly k nevědomé identifikaci s rodovými traumaty. Těžké osudy předků nekončí jejich smrtí ale dědí se z generace na generaci tak dlouho, dokud nedojde k uvědomění a pochopení. Mlčení vede k nevědomému přenosu. Řád nelze obelhat.
+Osobní traumata z raného dětství, nepřítomnost otce a komplikované rodinné poměry mě vedly k nevědomé identifikaci s rodovými traumaty. To se v mém životě projevilo jako dlouhá série opakovaných selhání. Těžké osudy předků nekončí jejich smrtí ale dědí se z generace na generaci tak dlouho, dokud nedojde k uvědomění a pochopení. Mlčení není řešení. Řád nelze obelhat.
 
 ## Osvobození
 
-Svět nám zrcadlí naše vlastní nevědomé vzorce. Rodová traumata vstupují do našich současných životů jako psychologické projekce. To se děje v rodinách, ve firmách, na úrovni států i v globálních geopolitických konfliktech. Když si to uvědomíme a uznáme, otevře se cesta pro důstojnější a svobodnější budoucnost. Klíčem je sebereflexe.
+Svět nám zrcadlí naše vlastní nevědomé vzorce. Rodová traumata vstupují do našich současných životů jako psychologické projekce. To se děje v rodinách, ve firmách, na úrovni států i v globálních geopolitických konfliktech. Když si to uvědomíme a uznáme, otevře se nám cesta k důstojnější a svobodnější budoucnosti. Klíčem je sebereflexe.
 
 ✱✱✱
