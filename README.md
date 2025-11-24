@@ -35,7 +35,7 @@ Nepřítomnost otce měla dominantní vliv na vývoj rodinných poměrů. Hlavou
 
 ## Dospívání
 
-Traumata z raného dětství, nepřítomnost otce a chaotické rodinné poměry otevřely dveře vlivu rodových traumat, o kterých se mlčí. To všechno dohromady v 15 letech vyústilo v existenciální krizi. Život přestal dávat smysl. S nástupem na střední školu v roce 2002 přišla na scénu marihuana a extáze. Krize postupně eskalovala a v 17 letech v roce 2004 vyvrcholila toxickou psychózou.
+Traumata z raného dětství, nepřítomnost otce a komplikované rodinné poměry otevřely dveře vlivu rodových traumat, o kterých se mlčí. To všechno dohromady v 15 letech vyústilo v existenciální krizi. Život přestal dávat smysl. S nástupem na střední školu v roce 2002 přišla na scénu marihuana a extáze. Krize postupně eskalovala a v 17 letech v roce 2004 vyvrcholila toxickou psychózou.
 
 ### Toxická psychóza
 
@@ -63,7 +63,7 @@ Prostředí technologického startupu mi v letech 2022-2025 umožnilo rychlý pr
 
 ## Kořeny
 
-V průběhu let jsem postupně odhaloval své kořeny.
+V průběhu mnoha let jsem postupně odhaloval své kořeny.
 
 ### Rodová živnost
 
@@ -79,10 +79,10 @@ Můj praděda bojoval v 1. světové válce v Československých legiích. Pře�
 
 ## Nevědomá dynamika
 
-Osobní traumata z raného dětství, nepřítomnost otce a komplikované vztahy v rodině mě vedly k nevědomé identifikaci s rodovými traumaty. Těžké osudy předků nekončí jejich smrtí ale dědí se z generace na generaci tak dlouho, dokud nedojde k uvědomění a pochopení. Řád nelze obelhat.
+Osobní traumata z raného dětství, nepřítomnost otce a komplikované rodinné poměry mě vedly k nevědomé identifikaci s rodovými traumaty. Těžké osudy předků nekončí jejich smrtí ale dědí se z generace na generaci tak dlouho, dokud nedojde k uvědomění a pochopení. Mlčení vede k nevědomému přenosu. Řád nelze obelhat.
 
 ## Osvobození
 
-Svět nám zrcadlí naše vlastní nevědomé vzorce. Rodová traumata vstupují do našich současných životů jako psychologické projekce. To se děje v globálních geopolitických konfliktech, na úrovni států, ve firmách i v rodinách. Když si to uvědomíme a uznáme, otevře se cesta pro důstojnější a svobodnější život. Klíčem je sebereflexe.
+Svět nám zrcadlí naše vlastní nevědomé vzorce. Rodová traumata vstupují do našich současných životů jako psychologické projekce. To se děje v globálních geopolitických konfliktech, na úrovni států, ve firmách a zejména v rodinách. Když si to uvědomíme a uznáme, otevře se cesta pro důstojnější a svobodnější život. Klíčem je sebereflexe.
 
 ✱✱✱
