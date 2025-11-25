@@ -9,7 +9,7 @@
 
 ## Proč?
 
-Tento příběh je velmi osobní. Traumata a křivdy, o kterých píšu, jsou však celospolečenská. Našim životům vládnou nevědomé kolektivní procesy. **Poznání osvobozuje.**
+Tento příběh je osobní. Traumata a křivdy, o kterých píšu, jsou celospolečenská. Naše kolektivní dědictví definuje rámec našich současných životů. **Poznání osvobozuje.**
 
 ## Dětství v ČSSR
 
@@ -79,10 +79,10 @@ Můj praděda bojoval v 1. světové válce v Československých legiích. Pře�
 
 ## Nevědomá dynamika
 
-Osobní traumata z raného dětství, nepřítomnost otce a komplikované rodinné poměry mě vedly k nevědomé identifikaci s rodovými traumaty. To se v mém životě projevilo jako dlouhá série opakovaných selhání. Těžké osudy předků nekončí jejich smrtí ale dědí se z generace na generaci tak dlouho, dokud nedojde k uvědomění a pochopení. Mlčení není řešení. Řád nelze obelhat.
+Osobní traumata z raného dětství, nepřítomnost otce a komplikované rodinné poměry mě vedly k nevědomé identifikaci s rodovými traumaty. To se v mém životě projevilo jako série opakovaných selhání. Těžké osudy předků nekončí jejich smrtí ale dědí se z generace na generaci tak dlouho, dokud nedojde k uvědomění a pochopení. Mlčení není řešení. Řád nelze obelhat.
 
 ## Osvobození
 
-Svět nám zrcadlí naše vlastní nevědomé vzorce. Rodová traumata vstupují do našich současných životů jako psychologické projekce. To se děje v rodinách, ve firmách, na úrovni států i v globálních geopolitických konfliktech. Když si to uvědomíme a uznáme, otevře se nám cesta k důstojnější a svobodnější budoucnosti. Klíčem je sebereflexe.
+Svět nám zrcadlí naše vlastní nevědomé vzorce. Rodová traumata vstupují do našich současných životů jako psychologické projekce. To se děje v rodinách, ve firmách, v organizacích, na úrovni států i v globálních geopolitických konfliktech. Když si to uvědomíme a uznáme, otevírá se nám cesta k důstojnější a svobodnější budoucnosti. Klíčem je sebereflexe.
 
 ✱✱✱
