@@ -7,7 +7,11 @@
 **Zdroj:** https://github.com/rvdvorak/bio  
 **Licence:** [Creative Commons Attribution-NoDerivatives 4.0 International](https://creativecommons.org/licenses/by-nd/4.0/)
 
-## Proč?
+## Věnování
+
+Věnováno nenarozeným dětem.
+
+## Úvod
 
 Tento příběh je osobní. Traumata a křivdy, o kterých píšu, jsou celospolečenská. Naše kolektivní dědictví definuje rámec našich současných životů. **Poznání osvobozuje.**
 
@@ -84,5 +88,3 @@ Osobní traumata z raného dětství, nepřítomnost otce a komplikované rodinn
 ## Osvobození
 
 Svět nám zrcadlí naše vlastní nevědomé vzorce. Rodová traumata vstupují do našich současných životů jako psychologické projekce. To se děje v rodinách, ve firmách, v organizacích, na úrovni států i v globálních geopolitických konfliktech. Když si to uvědomíme a uznáme, otevírá se nám cesta k důstojnější a svobodnější budoucnosti. Klíčem je sebereflexe.
-
-✱✱✱
