@@ -81,10 +81,10 @@ Během velké hospodářské krize musela moje prababička před svými sedmi d�
 
 Můj praděda bojoval v 1. světové válce v Československých legiích. Přežil peklo zajateckého tábora. Během návratu do vlasti těžce omrznul. Během velké hospodářské krize s manželkou živil sedm dětí. Ve 2. světové válce byl zapojen do protinacistického odboje. Byl odhalen Gestapem a mučením donucen k prozrazení odbojářů, kteří byli následně popraveni včetně jejich rodin. Poznamenán hrůzami válek a zajetí, zmrzačen mučením a zlomen pocitem viny z prozrazení odbojářů po zbytek života mlčel.
 
-## Poznání
+## Identita
 
-Osobní traumata z raného dětství, nepřítomnost otce a komplikované rodinné poměry mě vedly k nevědomé identifikaci s rodovými traumaty. To se v mém životě projevilo jako série opakovaných selhání. Těžké osudy předků nekončí jejich smrtí ale dědí se z generace na generaci tak dlouho, dokud nedojde k uvědomění a pochopení. Mlčení není řešení. Řád nelze obelhat.
+Osobní traumata z raného dětství, nepřítomnost otce a komplikované rodinné poměry mě vedly k nevědomé identifikaci s rodovými traumaty. Výsledkem byla série opakovaných selhání. Osudy našich předků nekončí jejich smrtí ale dědí se z generace na generaci tak dlouho, dokud nedojde k uvědomění. Řád nelze obelhat.
 
 ## Závěr
 
-Svět nám zrcadlí naše vlastní nevědomé vzorce. Osobní a rodová traumata vstupují do našich životů jako psychologické projekce, které zkreslují naše vnímání reality, ovlivňují naše rozhodování ("tahají nám za volant") a v extrémních případech můžou zcela převzít řízení. To platí v rodinách, ve firmách, v organizacích, na úrovni jednotlivých států i v geopolitice. Když to pochopíme, otevírá se nám cesta k důstojnější a svobodnější budoucnosti. **Klíčem je sebereflexe.**
+Svět nám zrcadlí naše vlastní nevědomé vzorce. Osobní a rodová traumata vstupují do našich životů jako psychologické projekce, které zkreslují naše vnímání reality, ovlivňují naše rozhodování ("tahají nám za volant") a v extrémních případech můžou úplně převzít řízení. To platí v rodinách, ve firmách, v organizacích, na úrovni jednotlivých států i v geopolitice. Když to pochopíme, otevírá se nám cesta k důstojnější a svobodnější budoucnosti. **Klíčem je sebereflexe.**
