@@ -83,7 +83,7 @@ Můj praděda bojoval v 1. světové válce v Československých legiích. Pře�
 
 ## Identita
 
-Osobní traumata z raného dětství, nepřítomnost otce a komplikované rodinné poměry mě vedly k nevědomé identifikaci s rodovými traumaty. Výsledkem byla série opakovaných selhání. Osudy našich předků nekončí jejich smrtí ale dědí se z generace na generaci tak dlouho, dokud nedojde k uvědomění. Řád nelze obelhat.
+Osobní traumata z raného dětství, nepřítomnost otce a komplikované rodinné poměry mě vedly k nevědomé identifikaci s rodovými traumaty. Výsledkem toho byla série osobních selhání. Osudy našich předků nekončí jejich smrtí ale dědí se z generace na generaci tak dlouho, dokud nedojde k uvědomění. Řád nelze obelhat.
 
 ## Závěr
 
