@@ -53,17 +53,17 @@ Krátce po propuštění z psychiatrie jsem v roce 2004 dosáhl plnoletosti. Př
 
 Na jaře 2007 před maturitou jsem skončil s pitím. Se slušným výsledkem jsem odmaturoval, oslavil 21. narozeniny a nastoupil do zaměstnání jako elektrikář.
 
-## Hledání smyslu
+## Údolí smrti
 
-Práce v továrně mi po dvou letech přestala dávat smysl. V souvislosti s tehdejší globální ekonomickou recesí se mi v roce 2009 naskytla příležitost odejít se 7 měsíčním odstupným. Bez váhání jsem toho využil. V letech 2009-2017 jsem vystřídal přibližně třicet různých prací. Mezitím jsem se pokusil o sebevraždu, prošel vyhořením a nakonec vyhlásil osobní bankrot.
+Práce v továrně mi po dvou letech přestala dávat smysl. V souvislosti s tehdejší globální ekonomickou recesí se mi v roce 2009 naskytla příležitost odejít se sedmiměsíčním odstupným. Bez váhání jsem toho využil. V letech 2009-2017 jsem vystřídal přibližně třicet různých prací. Mezitím jsem se pokusil o sebevraždu, prošel vyhořením a nakonec vyhlásil osobní bankrot.
 
-## Insolvence
+## Nový začátek
 
 V roce 2017 jsem vstoupil do insolvence jako zaměstnanec bezpečnostní agentury. Mimo rámec pracovního poměru jsem procházel komplikovanou cestou rekvalifikace do IT. V roce 2021 jsem splatil 100% pohledávek. V roce 2022 jsem našel uplatnění jako programátor webových aplikací.
 
-## Vzestup
+## Sklizeň
 
-V prostředí technologického startupu jsem v letech 2022-2025 prošel rychlým profesním vývojem. Po necelém roce v roli programátora jsem přešel do role technického manažera. S nasazením všech zkušeností, organizačního talentu a mezioborového přesahu (HW/SW/elektro/mechanika) jsem od roku 2023 vedl komplexní redesign technologického (IoT) produktu, který byl na přelomu roku 2024/2025 završen atestací a certifikací (CE) v akreditované zkušební laboratoři. Souběžně s redesignem jsem vedl reorganizaci výroby od fyzické migrace provozovny přes změnu dodavatelů, zefektivnění procesů až po nasazení informačního (ERP) systému pro řízení výroby a logistiky.
+V prostředí technologického startupu jsem v letech 2022-2025 prošel intenzivním kariérním vývojem. Po necelém roce v roli programátora jsem přešel do role technického manažera. Na základě dosavadních zkušeností, organizačního talentu a mezioborového přesahu (HW/SW/elektro/mechanika) jsem od roku 2023 vedl komplexní redesign technologického (IoT) produktu, který byl na přelomu roku 2024/2025 završen atestací a certifikací (CE) v akreditované zkušební laboratoři. Souběžně s redesignem jsem vedl reorganizaci výroby od fyzické migrace provozovny přes změnu dodavatelů, zefektivnění procesů až po nasazení informačního (ERP) systému pro řízení výroby a logistiky.
 
 ## Kořeny
 
