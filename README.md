@@ -63,7 +63,7 @@ V roce 2017 jsem vstoupil do insolvence jako zaměstnanec bezpečnostní agentur
 
 ## Sklizeň
 
-V prostředí technologického startupu jsem v letech 2022-2025 prošel intenzivním kariérním vývojem. Po necelém roce v roli programátora jsem přešel do role technického manažera. Na základě dosavadních zkušeností, organizačního talentu a mezioborového přesahu (HW/SW/elektro/mechanika) jsem od roku 2023 vedl komplexní redesign technologického (IoT) produktu, který byl na přelomu roku 2024/2025 završen atestací a certifikací (CE) v akreditované zkušební laboratoři. Souběžně s redesignem jsem vedl reorganizaci výroby od fyzické migrace provozovny přes změnu dodavatelů, zefektivnění procesů až po nasazení informačního (ERP) systému pro řízení výroby a logistiky.
+V prostředí technologického startupu jsem v letech 2022-2025 prošel intenzivním kariérním vývojem. Po necelém roce v roli programátora jsem přešel do role technického manažera. Na základě svých zkušeností, organizačního talentu a mezioborového přesahu (HW/SW/elektro/mechanika) jsem od roku 2023 vedl komplexní redesign technologického (IoT) produktu, který byl na přelomu roku 2024/2025 završen atestací a certifikací (CE) v akreditované zkušební laboratoři. Souběžně s redesignem jsem vedl reorganizaci výroby od fyzické migrace provozovny přes změnu dodavatelů, zefektivnění procesů až po nasazení informačního (ERP) systému pro řízení výroby a logistiky.
 
 ## Kořeny
 
