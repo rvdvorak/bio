@@ -67,7 +67,7 @@ V prostředí technologického startupu jsem v letech 2022-2025 prošel intenziv
 
 ## Kořeny
 
-V průběhu let jsem postupně odhaloval své kořeny.
+Osobní traumata z raného dětství, nepřítomnost otce a komplikované rodinné poměry mě vedly k nevědomé identifikaci s rodovými traumaty. Výsledkem toho byla série osobních selhání. Osudy našich předků nekončí jejich smrtí ale dědí se z generace na generaci tak dlouho, dokud nedojde k uvědomění. Řád nelze obelhat.
 
 ### Rodová živnost
 
@@ -80,10 +80,6 @@ Během velké hospodářské krize musela moje prababička před svými sedmi d�
 ### Zlomený hrdina
 
 Můj praděda bojoval v 1. světové válce v Československých legiích. Přežil peklo zajateckého tábora. Během návratu do vlasti těžce omrznul. Během velké hospodářské krize s manželkou živil sedm dětí. Ve 2. světové válce byl zapojen do protinacistického odboje. Byl odhalen Gestapem a mučením donucen k prozrazení odbojářů, kteří byli následně popraveni včetně jejich rodin. Poznamenán hrůzami válek a zajetí, zmrzačen mučením a zlomen pocitem viny z prozrazení odbojářů po zbytek života mlčel.
-
-## Identita
-
-Osobní traumata z raného dětství, nepřítomnost otce a komplikované rodinné poměry mě vedly k nevědomé identifikaci s rodovými traumaty. Výsledkem toho byla série osobních selhání. Osudy našich předků nekončí jejich smrtí ale dědí se z generace na generaci tak dlouho, dokud nedojde k uvědomění. Řád nelze obelhat.
 
 ## Závěr
 
