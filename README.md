@@ -83,4 +83,4 @@ Můj praděda bojoval v 1. světové válce v Československých legiích. Pře�
 
 ## Závěr
 
-Okolní svět nám zrcadlí naše vlastní nevědomé vzorce. Osobní a rodová traumata vstupují do našich životů jako psychologické projekce, které zkreslují naše vnímání reality, ovlivňují naše rozhodování ("tahají nám za volant") a v krajním případě můžou úplně převzít řízení. To platí v rodinách, ve firmách, v organizacích, na úrovni jednotlivých států i v geopolitice. Když to pochopíme, otevírá se nám cesta k důstojnější a svobodnější budoucnosti. **Klíčem je sebereflexe.**
+Okolní svět nám zrcadlí naše vlastní nevědomé vzorce. Osobní a rodová traumata vstupují do našich životů jako psychologické projekce, které zkreslují naše vnímání reality, tím ovlivňují naše rozhodování ("tahají nám za volant") a v krajním případě můžou úplně převzít řízení. To platí v rodinách, ve firmách, v organizacích, na úrovni státu i v geopolitice. Když to pochopíme, otevírá se nám cesta k důstojnější a svobodnější budoucnosti. **Klíčem je sebereflexe.**
