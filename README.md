@@ -19,11 +19,11 @@ Tento příběh je osobní. Traumata a křivdy, o kterých píšu, jsou celospol
 
 ### Příchod na svět
 
-Porodní realita ČSSR v roce 1986 byla plně v duchu tehdejšího státního režimu. Lékař byl ve zcela dominantním postavení vůči matce, která byla řemeny přikurtovaná ke třmenům porodního lůžka ve fixní poloze po celou dobu porodu bez předchozí přípravy a bez možnosti jakkoliv ovlivnit průběh. Chování zdravotníků bylo direktivní, invazivní zákroky rutinní, psychická podpora nulová. Přítomnost blízké osoby u porodu byla zakázaná. Bezprostředně po přestřižení pupečníku bylo dítě separováno od matky. Veškerý další kontakt mezi matkou a dítětem byl striktně omezený na kojení v pevně stanovených intervalech až do propuštění z porodnice. Tato praxe byla traumatizující pro matky i pro děti.
+Porodní realita ČSSR v roce 1986 byla plně v duchu tehdejšího státního režimu. Lékař byl ve zcela dominantním postavení vůči matce, která byla řemeny přikurtovaná ke třmenům porodního lůžka ve fixní poloze po celou dobu porodu bez předchozí přípravy a bez možnosti jakkoliv ovlivnit průběh. Chování zdravotníků bylo direktivní, invazivní zákroky rutinní, psychická podpora nulová. Přítomnost blízké osoby u porodu byla zakázaná. Bezprostředně po přestřižení pupečníku bylo dítě separováno od matky. Veškerý další kontakt mezi matkou a dítětem byl striktně omezený na kojení v pevně stanovených intervalech až do propuštění z porodnice.
 
 ### Zlomená noha
 
-Striktní separace dětí od rodičů byla na dětském oddělení okresní nemocnice v ČSSR v roce 1988 standardem. Návštěvy byly zakázané, provozní režim rigidní, zdravotní sestry přepracované, léčba čistě fyziologická. Psychosociální potřeby dětských pacientů systém neřešil. Dvouleté dítě se zlomenou nohou v sádře strávilo týden v imobilizaci a sociální izolaci. Důsledkem bylo další trauma.
+Striktní separace dětí od rodičů byla na dětském oddělení okresní nemocnice v ČSSR v roce 1988 standardem. Návštěvy byly zakázané, provozní režim rigidní, zdravotní sestry přepracované, léčba čistě fyziologická. Psychosociální potřeby dětských pacientů systém neřešil. Dvouleté dítě se zlomenou nohou v sádře strávilo týden v imobilizaci a sociální izolaci.
 
 ### Jesle
 
@@ -63,7 +63,7 @@ V roce 2017 jsem vstoupil do insolvence jako zaměstnanec bezpečnostní agentur
 
 ## Sklizeň
 
-V prostředí technologického startupu jsem v letech 2022-2025 prošel intenzivním kariérním vývojem. Po necelém roce v roli programátora jsem přešel do role technického manažera. Na základě svých zkušeností, organizačního talentu a mezioborového přesahu (HW/SW/elektro/mechanika) jsem od roku 2023 vedl komplexní redesign technologického (IoT) produktu, který byl na přelomu roku 2024/2025 završen atestací a certifikací (CE) v akreditované zkušební laboratoři. Souběžně s redesignem jsem vedl reorganizaci výroby od fyzické migrace provozovny přes změnu dodavatelů, zefektivnění procesů až po nasazení informačního (ERP) systému pro řízení výroby a logistiky.
+V prostředí technologického startupu jsem v letech 2022-2025 prošel intenzivním kariérním vývojem. Po necelém roce v roli programátora jsem přešel do role technického manažera. Na základě svých zkušeností, organizačního talentu a mezioborového přesahu (HW/SW/mechatronika) jsem od roku 2023 vedl komplexní redesign technologického (IoT) produktu, který byl na přelomu roku 2024/2025 završen atestací a certifikací (CE) v akreditované zkušební laboratoři. Souběžně s redesignem jsem vedl reorganizaci výroby od fyzické migrace provozovny přes změnu dodavatelů, zefektivnění procesů až po nasazení informačního (ERP) systému pro řízení výroby a logistiky.
 
 ## Kořeny
 
