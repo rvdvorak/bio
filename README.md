@@ -68,7 +68,7 @@ V prostředí technologického startupu jsem v letech 2022-2025 prošel intenziv
 
 ## Kořeny
 
-Nevědomá identifikace s mými předky měla za následek sérii osobních selhání. Osudy našich předků nekončí jejich smrtí ale dědí se z generace na generaci tak dlouho, dokud nedojde k uvědomění. Řád nelze obelhat.
+Nevědomá identifikace s mými předky měla za následek sérii osobních selhání. Pohnuté osudy našich předků nekončí jejich smrtí ale dědí se z generace na generaci tak dlouho, dokud nedojde k uvědomění. Řád nelze obelhat.
 
 ### Rodová živnost
 
