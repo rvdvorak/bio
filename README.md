@@ -40,7 +40,7 @@ Nepřítomnost otce měla dominantní vliv na vývoj rodinných poměrů. Hlavou
 
 ## Dospívání
 
-Traumata z raného dětství, nepřítomnost otce a komplikované rodinné poměry mě vedly k nevědomé identifikaci s rodovými traumaty z období 1. a 2. světové války. To všechno dohromady v 15 letech vyústilo v hlubokou duševní krizi. Smysl života jsem začal hledat ve spirituální literatuře. S nástupem na střední školu v roce 2002 do hry vstoupila marihuana a extáze. Krize postupně eskalovala a v 17 letech v roce 2004 vyvrcholila toxickou psychózou.
+Traumata z raného dětství, nepřítomnost otce a komplikované rodinné poměry mě vedly k nevědomé identifikaci s rodovými traumaty z období 1. a 2. světové války. To všechno dohromady v 15 letech vyústilo v hlubokou duševní krizi. Smysl života jsem začal hledat ve spirituální literatuře. Na střední škole do hry vstoupila marihuana a extáze. Krize postupně eskalovala a v 17 letech v roce 2004 vyvrcholila toxickou psychózou.
 
 ### Toxická psychóza
 
@@ -58,17 +58,17 @@ Na jaře 2007 před maturitou jsem skončil s pitím. Se slušným výsledkem js
 
 Práce v továrně mi po dvou letech přestala dávat smysl. V souvislosti s tehdejší globální ekonomickou recesí se mi v roce 2009 naskytla příležitost odejít se sedmiměsíčním odstupným. Bez váhání jsem toho využil. V letech 2009-2017 jsem vystřídal přibližně třicet různých prací. Mezitím jsem se pokusil o sebevraždu, prošel vyhořením a nakonec vyhlásil osobní bankrot.
 
-## Nový začátek
+## Restart
 
 V roce 2017 jsem vstoupil do insolvence jako zaměstnanec bezpečnostní agentury. Mimo rámec pracovního poměru jsem procházel komplikovanou cestou rekvalifikace do IT. V roce 2021 jsem splatil 100% pohledávek. V roce 2022 jsem našel uplatnění jako programátor webových aplikací.
 
-## Sklizeň
+## Integrace
 
-V prostředí technologického startupu jsem v letech 2022-2025 prošel intenzivním kariérním vývojem. Po necelém roce v roli programátora jsem přešel do role technického manažera. Na základě svých zkušeností, organizačního talentu a mezioborového přesahu (HW/SW/mechatronika) jsem od roku 2023 vedl komplexní redesign technologického (IoT) produktu, který byl na přelomu roku 2024/2025 završen atestací a certifikací (CE) v akreditované zkušební laboratoři. Souběžně s redesignem jsem vedl reorganizaci výroby od fyzické migrace provozovny přes změnu dodavatelů, zefektivnění procesů až po nasazení informačního (ERP) systému pro řízení výroby a logistiky.
+Po necelém roce v roli programátora jsem přešel do vedoucí pozice. Na základě životních zkušeností, organizačního talentu a mezioborového přesahu (HW, SW, mechatronika) jsem od roku 2023 vedl kompletní redesign technologického (IoT) produktu, který byl v roce 2025 úspěšně završen atestací a certifikací (CE) v akreditované zkušební laboratoři. Souběžně s redesignem jsem vedl reorganizaci výroby od fyzické migrace provozu přes konsolidaci dodavatelského řetězce, optimalizaci procesů až po úspěšné nasazení ERP systému pro řízení výroby a logistiky.
 
 ## Kořeny
 
-Nevědomá identifikace s mými předky měla za následek sérii osobních selhání. Pohnuté osudy našich předků nekončí jejich smrtí ale dědí se z generace na generaci tak dlouho, dokud nedojde k uvědomění. Řád nelze obelhat.
+Nevědomá identifikace s mými předky měla za následek sérii osobních selhání, za která jsem draze zaplatil. Zároveň jsem získal hluboké poznání a vhled pod povrch věcí. Pohnuté osudy našich předků nekončí jejich smrtí ale dědí se z generace na generaci tak dlouho, dokud nedojde k uvědomění. Řád nelze obelhat.
 
 ### Rodová živnost
 
