@@ -1,4 +1,4 @@
-# Údolím smrti k pozici technického ředitele
+# Údolím smrti k vedoucí pozici
 
 [![License: CC BY-ND 4.0](https://img.shields.io/badge/License-CC%20BY--ND%204.0-lightgrey.svg)](https://creativecommons.org/licenses/by-nd/4.0/)
 
@@ -64,11 +64,11 @@ V roce 2017 jsem vstoupil do insolvence jako zaměstnanec bezpečnostní agentur
 
 ## Integrace
 
-Po necelém roce v roli programátora jsem přešel do vedoucí pozice. Na základě životních zkušeností, organizačního talentu a mezioborového přesahu (HW, SW, mechatronika) jsem od roku 2023 vedl kompletní redesign technologického (IoT) produktu, který byl v roce 2025 úspěšně završen atestací a certifikací (CE) v akreditované zkušební laboratoři. Souběžně s redesignem jsem vedl reorganizaci výroby od fyzické migrace provozu přes konsolidaci dodavatelského řetězce, optimalizaci procesů až po úspěšné nasazení ERP systému pro řízení výroby a logistiky.
+Po necelém roce v roli programátora jsem přešel do vedoucí pozice. Od roku 2023 do roku 2025 jsem vedl redesign technologického (IoT) produktu, který byl završen úspěšnou atestací a certifikací (CE) v akreditované zkušební laboratoři. Souběžně s redesignem jsem vedl reorganizaci výroby od fyzické migrace provozu přes konsolidaci dodavatelského řetězce, optimalizaci procesů až po úspěšné nasazení ERP systému pro řízení výroby a logistiky.
 
 ## Kořeny
 
-Nevědomá identifikace s mými předky měla za následek sérii osobních selhání, za která jsem draze zaplatil. Zároveň jsem získal hluboké poznání a vhled pod povrch věcí. Pohnuté osudy našich předků nekončí jejich smrtí ale dědí se z generace na generaci tak dlouho, dokud nedojde k uvědomění. Řád nelze obelhat.
+Nevědomá identifikace s mými předky mě vedla k sérii osobních selhání, za která jsem draze zaplatil. Zároveň jsem získal hluboké poznání a vhled pod povrch věcí. Pohnuté osudy našich předků nekončí jejich smrtí ale dědí se z generace na generaci tak dlouho, dokud nedojde k uvědomění. Řád nelze obelhat.
 
 ### Rodová živnost
 
