@@ -13,7 +13,7 @@ Věnováno nenarozeným dětem.
 
 ## Úvod
 
-Tento příběh je osobní. Traumata a křivdy, o kterých píšu, jsou celospolečenská. Naše kolektivní dědictví definuje rámec našich současných životů. **Poznání osvobozuje.**
+Tento příběh je osobní. Traumata a křivdy, o kterých píšu, jsou celospolečenská. Naše kolektivní dědictví definuje rámec našich současných individuálních životů. **Poznání osvobozuje.**
 
 ## Dětství v ČSSR
 
@@ -35,15 +35,15 @@ Manželství mých rodičů ztroskotalo a na podzim 1989, když mi byly 3 roky, 
 
 ## Dětství v 90. letech
 
-Nepřítomnost otce měla dominantní vliv na vývoj rodinných poměrů. Hlavou neúplné rodiny se po rozvodu v jistém smyslu stala moje babička. Její dům byl stabilním útočištěm, zatímco se moje rodina opakovaně stěhovala. Babička však nemůže nahradit otce. Matka po rozvodu navázala nová partnerství. Vývoj vztahů byl turbulentní v duchu 90. let. V roce 1999, když mi bylo 13 let, se moje rodina přestěhovala do Brna.
+Nepřítomnost otce měla dominantní vliv na vývoj rodinných poměrů. Hlavou neúplné rodiny se po rozvodu v jistém smyslu stala moje babička. Její dům byl stabilním útočištěm, zatímco se moje rodina opakovaně stěhovala. Matka po rozvodu navázala nová partnerství. Vývoj vztahů byl turbulentní v duchu 90. let. V roce 1999, když mi bylo 13 let, se moje rodina přestěhovala do Brna.
 
 ## Dospívání
 
-Traumata z raného dětství, nepřítomnost otce a komplikované rodinné poměry otevřely dveře vlivu rodových traumat, o kterých se mlčí. To všechno dohromady v 15 letech vyústilo v existenciální krizi. Život mi přestal dávat smysl. S nástupem na střední školu v roce 2002 přišla na scénu marihuana a extáze. Krize postupně eskalovala a v 17 letech v roce 2004 vyvrcholila toxickou psychózou.
+Traumata z raného dětství, nepřítomnost otce a komplikované rodinné poměry mě vedly k nevědomé identifikaci s rodovými traumaty z období 1. a 2. světové války. To všechno dohromady v 15 letech vyústilo v hlubokou duševní krizi. Smysl života jsem začal hledat ve spirituální literatuře. S nástupem na střední školu v roce 2002 do hry vstoupila marihuana a extáze. Krize postupně eskalovala a v 17 letech v roce 2004 vyvrcholila toxickou psychózou.
 
 ### Toxická psychóza
 
-Nástup toxické psychózy byl plíživý. Denní realita se začala vlivem dlouhodobého nadužívání marihuany občas v kombinaci s extází postupně prolínat se snovým světem. Bylo jasné, že něco není v pořádku ale nikdo to nedokázal zastavit. V určitou chvíli blud zcela převládl nad realitou a situace se stala neúnosnou. Následoval převoz na psychiatrii. Na příjmu jsem neměl ponětí o místě ani o čase. Nebyl jsem schopen odpovědět na otázku, kdo jsem. Nevěděl jsem, jestli jsem živý nebo mrtvý. Abstinence mě vrátila do reality a po 7 týdnech jsem byl propuštěn. Toxická psychóza byla jedovatým plodem mé existenciální krize. Kořeny však zůstaly skryty.
+Nevědomá identifikace s mými předky byla umocněná dlouhodobým působením marihuany a občas extáze. Postupně jsem se vzdaloval realitě a v určitou chvíli jsem zcela ztratil orientaci ve společnosti i v časoprostoru. Následoval převoz na psychiatrii. Abstinence mě vrátila do reality a po 7 týdnech jsem byl propuštěn. Toxická psychóza skončila. Nevědomá identifikace  nikoliv.
 
 ### Plnoletost
 
@@ -67,7 +67,7 @@ V prostředí technologického startupu jsem v letech 2022-2025 prošel intenziv
 
 ## Kořeny
 
-Osobní traumata z raného dětství, nepřítomnost otce a komplikované rodinné poměry mě vedly k nevědomé identifikaci s rodovými traumaty. Výsledkem toho byla série osobních selhání. Osudy našich předků nekončí jejich smrtí ale dědí se z generace na generaci tak dlouho, dokud nedojde k uvědomění. Řád nelze obelhat.
+Nevědomá identifikace s mými předky měla za následek sérii osobních selhání. Osudy našich předků nekončí jejich smrtí ale dědí se z generace na generaci tak dlouho, dokud nedojde k uvědomění. Řád nelze obelhat.
 
 ### Rodová živnost
 
