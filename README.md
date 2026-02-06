@@ -4,6 +4,7 @@
 
 **Autor:** [Roman Viktor Dvořák](https://romanviktor.cz)  
 **Publikováno:** 12. listopadu 2025  
+**Aktualizováno:** 6. února 2026  
 **Zdroj:** https://github.com/rvdvorak/bio  
 **Licence:** [Creative Commons Attribution-NoDerivatives 4.0 International](https://creativecommons.org/licenses/by-nd/4.0/)
 
