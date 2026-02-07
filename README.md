@@ -4,7 +4,7 @@
 
 **Autor:** [Roman Viktor Dvořák](https://romanviktor.cz)  
 **Publikováno:** 12. listopadu 2025  
-**Aktualizováno:** 6. února 2026  
+**Aktualizováno:** 7. února 2026  
 **Zdroj:** https://github.com/rvdvorak/bio  
 **Licence:** [Creative Commons Attribution-NoDerivatives 4.0 International](https://creativecommons.org/licenses/by-nd/4.0/)
 
@@ -40,7 +40,7 @@ Nepřítomnost otce měla dominantní vliv na vývoj rodinných poměrů. Hlavou
 
 ## Dospívání
 
-Traumata z raného dětství, nepřítomnost otce a komplikované rodinné poměry mě vedly k nevědomé identifikaci s rodovými traumaty z období 1. a 2. světové války. To všechno dohromady v 15 letech vyústilo v hlubokou duševní krizi. Smysl života jsem začal hledat ve spirituální literatuře. Na střední škole do hry vstoupila marihuana a extáze. Krize postupně eskalovala a v 17 letech v roce 2004 vyvrcholila toxickou psychózou.
+Traumata z raného dětství, nepřítomnost otce a komplikované rodinné poměry mě vedly k nevědomé identifikaci s rodovými traumaty z období 1. a 2. světové války. To všechno dohromady v 15 letech vyústilo v hlubokou duševní krizi. Smysl života jsem hledal ve spirituální literatuře. Na střední škole do hry vstoupila marihuana a extáze. Krize postupně eskalovala a v 17 letech v roce 2004 vyvrcholila toxickou psychózou.
 
 ### Toxická psychóza
 
